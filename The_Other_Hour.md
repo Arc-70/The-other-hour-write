@@ -49283,27 +49283,27 @@ There was something written on the back. It was in the same big untidy blue hand
 
 ## Chapter 82: The Hour of Every World
 
-The stone came from a quarry above Loch Rannoch, and it came in blocks about the size of a suitcase, and Harry carried them from the cart to the bridge one at a time, with his hands.
+The stone came from a quarry above Loch Rannoch, in blocks about the size of a suitcase, and Harry carried them from the cart to the bridge one at a time, with his hands.
 
-He could have used a wand. Everybody told him so. Aberforth told him so on the first morning, in March, standing on the bank of the stream at the bottom of the high street with his arms folded and his beard blowing about, watching Harry stagger down the slope with the first block held against his chest. *There's a charm for that, you know. They teach it to first-years.* And Harry had put the block down on the grass beside the old bridge, very carefully, and straightened up, and said that he knew.
+He could have used a wand. Everybody told him so. Aberforth told him so on the first morning, in March, standing on the bank of the stream at the bottom of the high street with his arms folded and his beard blowing about, watching Harry stagger down the slope with the first block held against his chest. *There's a charm for that, you know. They teach it to first-years.* And Harry had put the block down on the grass beside the old bridge, very carefully, and straightened up, and said he knew.
 
 Aberforth had looked at him for a while.
 
-Then he had gone back to the Hog's Head and come out again ten minutes later with a second pair of leather gloves, and put them on, and picked up the other end of the next block.
+Then he'd gone back to the Hog's Head and come out again ten minutes later with a second pair of leather gloves, put them on, and picked up the other end of the next block.
 
-That had been seven months ago. It was October now. The old bridge was gone, the little humped one with the cracked parapet and the loaf-sized piece missing, that a charm had held together since the war because nobody in the village could bear to touch it. The new one was nearly finished. It was wider, and lower, and it was built of grey stone from Rannoch, and it had two arches instead of one, and it had been built almost entirely by a nineteen-year-old wizard and a man well over a hundred, by hand, with a great deal of advice from everybody who walked past.
+That had been seven months ago. It was October now. The old bridge was gone, the little humped one with the cracked parapet and the loaf-sized piece missing, which a charm had held together since the war because nobody in the village could bear to touch it. The new one was nearly finished. It was wider and lower, built of grey stone from Rannoch, with two arches instead of one, and it had been built almost entirely by a nineteen-year-old wizard and a man well over a hundred, by hand, with a great deal of advice from everybody who walked past.
 
 Harry liked the stone.
 
-He had not expected to. He had taken the job because Aberforth had mentioned, in January, quite casually over a pint, that the village was going to rebuild the bridge properly in the spring and could not find anybody who wanted to do it, and Harry had said *I'll do it*, before he had thought about it, because it was something to do with his hands that did not involve anybody's face.
+He hadn't expected to. He'd taken the job because Aberforth had mentioned in January, quite casually over a pint, that the village meant to rebuild the bridge properly in the spring and couldn't find anybody who wanted to do it, and Harry had said *I'll do it* before he'd thought about it, because it was something to do with his hands that didn't involve anybody's face.
 
-He liked it more than he could explain. He liked the weight of it. He liked the way each block was different, and had to be turned and tried and turned again before it would sit. He liked that you could put your whole hand flat on a piece of stone and know exactly what it was, all the way through, because it was stone, and there was nothing else in it.
+He liked it more than he could explain. He liked the weight of it. He liked the way each block was different and had to be turned and tried and turned again before it would sit. He liked that you could put your whole hand flat on a piece of stone and know exactly what it was, all the way through, because it was stone and there was nothing else in it.
 
-It did not feel anything.
+It didn't feel anything.
 
-He did not feel anything, towards it. There was nothing to read and nothing to miss. He did not stand in front of it and wait. He did not look at it the way he looked at everybody, still, all this time later, in the half second before he remembered.
+He didn't feel anything towards it. There was nothing to read and nothing to miss. He didn't stand in front of it and wait. He didn't look at it the way he still looked at everybody, all this time later, in the half second before he remembered.
 
-It was the most restful thing he had ever done.
+It was the most restful thing he'd ever done.
 
 "That one's wrong," said Aberforth.
 
@@ -49311,7 +49311,7 @@ It was the most restful thing he had ever done.
 
 "It's upside down."
 
-Harry looked at it. It was the last block but four of the downstream parapet, and he had been trying it for six minutes.
+Harry looked at it. It was the last block but four of the downstream parapet, and he'd been trying it for six minutes.
 
 "It hasn't got an upside down," he said. "It's a block."
 
@@ -49319,7 +49319,7 @@ Harry looked at it. It was the last block but four of the downstream parapet, an
 
 Harry turned it over. It sat.
 
-Aberforth did not say anything. He did not need to. He stood on the bank with his hands in the pockets of his old coat and looked at the parapet, and Harry looked at his face, from habit, and did not know what was in it, and asked.
+Aberforth said nothing. He didn't need to. He stood on the bank with his hands in the pockets of his old coat and looked at the parapet, and Harry looked at his face, from habit, and didn't know what was in it, and asked.
 
 "What are you feeling?"
 
@@ -49329,23 +49329,23 @@ Aberforth did not say anything. He did not need to. He stood on the bank with hi
 
 Aberforth considered.
 
-"Pleased about the block," he said, after a while, grudgingly. "You can have that one for free."
+"Pleased about the block," he said after a while, grudgingly. "You can have that one for free."
 
 * * *
 
 On the eighteenth of October, at twenty past eleven, Evelyn found the nine hundred and fourth error in Births, 1857.
 
-She noted it in the margin in red ink, in her small square hand. A child born in Godalming in the April of that year had been entered under her mother's maiden name, and the father's name had been spelled three different ways on three successive lines by a clerk who had evidently been either very tired or very drunk. She corrected all three. She initialled the correction. She moved on.
+She noted it in the margin in red ink, in her small square hand. A child born in Godalming in the April of that year had been entered under her mother's maiden name, and the father's name had been spelled three different ways on three successive lines by a clerk who'd evidently been either very tired or very drunk. She corrected all three. She initialled the correction. She moved on.
 
-"How many?" said Mr Pike, from the large desk, without looking up.
+"How many?" said Mr Pike from the large desk without looking up.
 
 "In 1857? Nine hundred and four."
 
 "And the decade?"
 
-"Eleven thousand, two hundred and sixty."
+"Eleven thousand two hundred and sixty."
 
-Mr Pike made a small satisfied noise, the kind of noise a man makes when the kettle boils at exactly the moment he expected.
+Mr Pike made a small satisfied noise, the noise a man makes when the kettle boils at exactly the moment he expected.
 
 "Disgrace," he said.
 
@@ -49355,21 +49355,21 @@ Mr Pike made a small satisfied noise, the kind of noise a man makes when the ket
 
 She kept going.
 
-She had been in the Office of Magical Registers for fifteen months. She had a new cardigan, grey, from Marks and Spencer, and she had a room of her own, above a bookbinder's in Rugby Street, two streets from the Ministry's visitors' entrance, with a gas fire and a window over the yard and a shelf for her books that she had put up herself, crookedly, and not straightened. She had moved there in the September of last year, from Grimmauld Place, because she had decided that a person ought to have a door of her own to shut.
+She'd been in the Office of Magical Registers for fifteen months. She had a new cardigan, grey, from Marks and Spencer, and she had a room of her own above a bookbinder's in Rugby Street, two streets from the Ministry's visitors' entrance, with a gas fire and a window over the yard and a shelf for her books that she'd put up herself, crookedly, and not straightened. She'd moved there in the September of last year from Grimmauld Place, because she'd decided a person ought to have a door of her own to shut.
 
 She shut it every evening. She found she liked it.
 
-She found she liked most things now, a little. It was a strange thing to notice. She noticed it anyway, the way she noticed the errors in Births, 1857. The milk in the drawer under the Gaunts, which was always cold. The car park in Swindon in the enchanted window, which had had the same blue Ford Cortina parked in the third bay from the left for fifteen months, and which she had come to think of as an acquaintance. Mr Pike, who said perhaps forty words a day, and nineteen of them were *disgrace*, and who had brought her in a slice of his sister's seed cake on her twentieth birthday, in March, wrapped in greaseproof paper, without a word, and put it on her desk, and gone back to his register.
+She found she liked most things now, a little. It was a strange thing to notice. She noticed it anyway, the way she noticed the errors in Births, 1857. The milk in the drawer under the Gaunts, which was always cold. The car park in Swindon in the enchanted window, which had had the same blue Ford Cortina parked in the third bay from the left for fifteen months, and which she'd come to think of as an acquaintance. Mr Pike, who said perhaps forty words a day, nineteen of them *disgrace*, and who'd brought her a slice of his sister's seed cake on her twentieth birthday in March, wrapped in greaseproof paper, and put it on her desk without a word, and gone back to his register.
 
-She had not told him it was her birthday. She did not know how he knew.
+She hadn't told him it was her birthday. She didn't know how he knew.
 
-Then she remembered that he had her date of birth in a green cloth volume on the shelf behind his head, and had probably checked it.
+Then she remembered he had her date of birth in a green cloth volume on the shelf behind his head, and had probably checked it.
 
-She had nearly laughed.
+She'd nearly laughed.
 
-She had her hand on the watch, in her cardigan pocket. She noted that. She kept her hand on it a good deal still. It did not tick. It had not ticked for twenty-two months. She took it out every morning at seven and opened the lid and looked at the face, out of a habit that was nine years old, and it said eleven minutes past seven, every morning, as though it were waiting for something to happen at twelve minutes past.
+She had her hand on the watch in her cardigan pocket. She noted that. She still kept her hand on it a good deal. It didn't tick. It hadn't ticked for twenty-two months. She took it out every morning at seven and opened the lid and looked at the face, out of a habit nine years old, and every morning it said eleven minutes past seven, as though waiting for something to happen at twelve minutes past.
 
-At half past eleven, she put down her pen.
+At half past eleven she put down her pen.
 
 "Mr Pike."
 
@@ -49383,37 +49383,37 @@ Mr Pike looked up over his spectacles.
 
 "Level Nine."
 
-He looked at her for a moment longer. Then he looked down at his register.
+He looked at her a moment longer. Then he looked down at his register.
 
 "Fill in a form," he said.
 
 * * *
 
-The Unspeakable was called Ashdown, and he owed Hermione a favour, and he did not say what for.
+The Unspeakable was called Ashdown, and he owed Hermione a favour, and he didn't say what for.
 
-He met her at the lift on Level Nine at two o'clock, a tall stooping man of about fifty with ink on his fingers and a long sad face like a horse's, and took her along the black corridor to the plain black door without saying a word. Evelyn did not mind. She had been along that corridor before. She had been along it twice, in two different worlds, and she had not liked it either time, and she noted, as they walked, that she did not like it now, but that it was a different sort of not liking. It was the not liking of a person in a corridor. Not of a person in a war.
+He met her at the lift on Level Nine at two o'clock, a tall stooping man of about fifty with ink on his fingers and a long sad face like a horse's, and took her along the black corridor to the plain black door without a word. Evelyn didn't mind. She'd been along that corridor before. She'd been along it twice, in two different worlds, and she hadn't liked it either time, and she noted as they walked that she didn't like it now, but that it was a different sort of not liking. The not liking of a person in a corridor. Not of a person in a war.
 
 He took her through the round room with the doors and into the Time Room.
 
-It was as she remembered. The light. The ticking, from everywhere at once, clocks on every surface, standing and hanging and stacked on shelves, all going, all slightly out with each other, so that the room was full of a soft continuous patter like rain on a roof. And the great bell jar at the end, taller than a man, full of a bright glittering current of air that went round and round, and inside it, for ever, a small bird hatched out of an egg and flew up and grew old and fell and went back into its egg and was hatched again.
+It was as she remembered. The light. The ticking from everywhere at once, clocks on every surface, standing and hanging and stacked on shelves, all going, all slightly out with each other, so that the room was full of a soft continuous patter like rain on a roof. And the great bell jar at the end, taller than a man, full of a bright glittering current of air going round and round, and inside it, for ever, a small bird hatched out of an egg and flew up and grew old and fell and went back into its egg and was hatched again.
 
-She did not look at the bell jar for long.
+She didn't look at the bell jar for long.
 
 "Sit down," said Ashdown.
 
-She sat down at a long table under a window that looked out on nothing. He sat down opposite her and held out his hand.
+She sat at a long table under a window that looked out on nothing. He sat opposite her and held out his hand.
 
 She took the watch out of her pocket.
 
-She did not give it to him at once. She held it for a moment in her palm, the small gold watch with the ivy leaves worn smooth on the lid, which her grandmother had given her in the east wing at Selwyn Hall when she was eleven, with two instructions. Wind it every morning. Never wind it backwards. She had done one of those every morning for seven years and the other once, and she had paid for that once in ways she was still counting.
+She didn't give it to him at once. She held it for a moment in her palm, the small gold watch with the ivy leaves worn smooth on the lid, which her grandmother had given her in the east wing at Selwyn Hall when she was eleven, with two instructions. Wind it every morning. Never wind it backwards. She'd done the first every morning for seven years and the second once, and she'd paid for that once in ways she was still counting.
 
 She put it in his hand.
 
 He looked at it for an hour.
 
-She timed it. It was an hour and four minutes. He did not speak once. He opened it, and looked at the face, and at the two hands that said eleven minutes past seven, and at the third hand, the very fine one, so fine that most people never noticed it was there, which had never moved in all the years she had owned it. He closed it. He held it to his ear. He opened the back with a tool from his pocket like a very small silver key and looked inside for a long time with a glass screwed into one eye. He did a number of things with his wand that she had never seen anybody do and that she memorised, because she memorised everything, and that she would later look up and fail to find in any book.
+She timed it. It was an hour and four minutes. He didn't speak once. He opened it and looked at the face, and at the two hands that said eleven minutes past seven, and at the third hand, the very fine one most people never noticed was there, which had never moved in all the years she'd owned it. He closed it. He held it to his ear. He opened the back with a tool from his pocket like a very small silver key and looked inside for a long time with a glass screwed into one eye. He did a number of things with his wand she'd never seen anybody do and which she memorised, because she memorised everything, and which she'd later look up and fail to find in any book.
 
-Then he closed it, and put it down on the table between them, and took the glass out of his eye.
+Then he closed it, set it down on the table between them, and took the glass out of his eye.
 
 "It isn't broken," said Ashdown.
 
@@ -49421,13 +49421,13 @@ Evelyn looked at him.
 
 "I'm sorry," she said. "I'm not sure I understand. It stopped. Twenty-two months ago. It hasn't moved since. The crown turns and nothing catches."
 
-"Yes. I know. I've just spent an hour on it." He looked at the watch. "Nothing in it is broken. Not a spring, not a wheel, not a jewel. The mechanism is perfect. Better than perfect. I've never seen work like it, and I've been in this room for twenty-six years." He turned it a little on the table with one long finger. "And there's a great deal in it that isn't a mechanism. I'd guess you know that."
+"Yes. I know. I've just spent an hour on it." He looked at the watch. "Nothing in it is broken. Not a spring, not a wheel, not a jewel. The mechanism is perfect. Better than perfect. I've never seen work like it, and I've been in this room twenty-six years." He turned it a little on the table with one long finger. "And there's a great deal in it that isn't a mechanism. I'd guess you know that."
 
 "Yes."
 
 "I don't know what most of it is. I'll be honest with you. I don't think anybody alive does." He looked at her. "But I know what it isn't. It isn't broken. It isn't dead. It isn't stopped the way a watch stops when it runs down." He paused. "It's waiting."
 
-The clocks ticked all round them, like rain.
+The clocks ticked all round them like rain.
 
 "For what?" said Evelyn.
 
@@ -49437,7 +49437,7 @@ Ashdown looked at the watch for a long moment.
 
 * * *
 
-She took it back to the Office of Magical Registers and sat down at her small desk and put it beside Births, 1857, face up, with the lid open, and looked at it.
+She took it back to the Office of Magical Registers and sat at her small desk and set it beside Births, 1857, face up, lid open, and looked at it.
 
 Mr Pike looked at it too, over his spectacles.
 
@@ -49447,17 +49447,17 @@ Mr Pike looked at it too, over his spectacles.
 
 He considered this.
 
-"Well," said Mr Pike, "that's something." And he went back to his register, and she went back to hers, and she found the nine hundred and fifth error in Births, 1857, at twenty to four, and corrected it.
+"Well," said Mr Pike, "that's something." And he went back to his register, and she went back to hers, and at twenty to four she found the nine hundred and fifth error in Births, 1857, and corrected it.
 
 * * *
 
-Ron and Hermione had a flat in Islington, on the top floor of a tall thin house on Cloudesley Road, with a kitchen the size of a wardrobe and a window that looked out over a great many chimneys, and on Wednesday evenings Harry went there for supper and was not allowed to help.
+Ron and Hermione had a flat in Islington, on the top floor of a tall thin house on Cloudesley Road, with a kitchen the size of a wardrobe and a window that looked out over a great many chimneys, and on Wednesday evenings Harry went there for supper and wasn't allowed to help.
 
 "Sit," said Hermione. "Sit *down*. Last time you helped we were finding onion in the cutlery drawer for a week."
 
 He sat.
 
-Ron was at the stove, stirring something in a large pan with a wooden spoon, very seriously, with a tea towel over his shoulder. He had been learning to cook since the spring. He had learned from his mother, in the Burrow kitchen, on Sundays, and Mrs Weasley had cried every time, and Ron had pretended not to notice, and gone on learning. He was not very good. He was getting better.
+Ron was at the stove, stirring something in a large pan with a wooden spoon, very seriously, a tea towel over his shoulder. He'd been learning to cook since the spring. He'd learned from his mother in the Burrow kitchen on Sundays, and Mrs Weasley had cried every time, and Ron had pretended not to notice and gone on learning. He wasn't very good. He was getting better.
 
 "What is it?" said Harry.
 
@@ -49469,11 +49469,11 @@ Ron looked into the pan.
 
 "Brown," he said.
 
-Harry looked at his face. From habit. He did not know what was in it, and he asked.
+Harry looked at his face. From habit. He didn't know what was in it, and he asked.
 
 "What are you feeling?"
 
-Ron did not even turn round. He had been asked that question perhaps four hundred times since the summer of the funerals, and he had stopped being surprised by it some time around Christmas.
+Ron didn't even turn round. He'd been asked that question perhaps four hundred times since the summer of the funerals, and he'd stopped being surprised by it somewhere round Christmas.
 
 "Worried about the stew," he said. "Bit tired. Chudley lost on Saturday, so there's that, there's always that." He stirred. "And pleased you're here. You can have that one. Don't get used to it."
 
@@ -49485,7 +49485,7 @@ Ron did not even turn round. He had been asked that question perhaps four hundre
 
 "You have. You wore a groove in the hall."
 
-Hermione sat down opposite Harry at the little table under the window. She looked at him. He did not know what was in her face either, and he was about to ask, and she held up a hand.
+Hermione sat down opposite Harry at the little table under the window. She looked at him. He didn't know what was in her face either, and he was about to ask, and she held up a hand.
 
 "Don't," she said. "I'll tell you. I'm not sure what I'm feeling. Nervous, partly. On somebody else's behalf." She folded her hands. "Evelyn went to see Mr Ashdown. On Monday. In the Time Room. About the watch."
 
@@ -49505,11 +49505,11 @@ Harry looked at her.
 
 Harry remembered.
 
-He sat at the little table in the kitchen the size of a wardrobe, with the window full of chimneys and Ron stirring the brown stew, and thought about a lake at sunrise, and a small gold watch with ivy leaves on its lid, and a girl who had always known the time, saying *I don't know* twice, quite steadily, as though she were noting it down.
+He sat at the little table in the kitchen the size of a wardrobe, the window full of chimneys and Ron stirring the brown stew, and thought about a lake at sunrise, and a small gold watch with ivy leaves on its lid, and a girl who'd always known the time saying *I don't know* twice, quite steadily, as though noting it down.
 
 "Why didn't she tell me?" he said.
 
-He did not mean to say it out loud. It came out.
+He hadn't meant to say it aloud. It came out.
 
 Hermione looked at him for a long moment.
 
@@ -49517,7 +49517,7 @@ Hermione looked at him for a long moment.
 
 "I ask her things every week."
 
-"You ask her how Births 1857 is going," said Ron, from the stove. "You ask her if she's read the new Ruth Rendell. You ask her if she wants another pot of tea. I've been there, mate. I came once, in February. You asked her if she wanted another pot of tea three times."
+"You ask her how Births 1857 is going," said Ron from the stove. "You ask her if she's read the new Ruth Rendell. You ask her if she wants another pot of tea. I've been there, mate. I came once, in February. You asked her if she wanted another pot of tea three times."
 
 "She did want another pot of tea."
 
@@ -49525,11 +49525,11 @@ Hermione looked at him for a long moment.
 
 "What are you saying?"
 
-Ron turned round from the stove. He had the wooden spoon in one hand and the tea towel over his shoulder, and his face was doing something Harry could not read, and Harry looked at it and waited, and Ron sighed.
+Ron turned round from the stove. He had the wooden spoon in one hand and the tea towel over his shoulder, and his face was doing something Harry couldn't read, and Harry looked at it and waited, and Ron sighed.
 
 "I'm saying," said Ron, "that you ask everybody in London how they're feeling. You ask Mum. You ask Neville. You asked the bloke who sold me my broom how he was feeling and he told you about his divorce for twenty minutes. You ask the woman in the Tesco. You've asked me four hundred times. And you've never once asked her." He pointed the spoon at Harry. "Not once. Not in a year and a half. Have you."
 
-Harry did not say anything.
+Harry had no answer.
 
 "Ask her, mate," said Ron.
 
@@ -49547,23 +49547,23 @@ Ron looked at him.
 
 They met on Thursdays.
 
-They had met on Thursdays since the September of last year, at six o'clock, at a café on Lamb's Conduit Street called Ferrari's that had been there since 1952 and had never in that time changed its tablecloths, its menu, or, as far as Harry could tell, its waitress. Her name was Pina. She was about sixty, and Italian by way of Clerkenwell, and she called Harry *love* and Evelyn *Miss*, and she brought Evelyn a pot of tea for one and a toasted cheese sandwich cut into four triangles without being asked, every Thursday, because Evelyn had ordered a pot of tea for one and a toasted cheese sandwich cut into four triangles every Thursday for a year.
+They'd met on Thursdays since the September of last year, at six o'clock, at a café on Lamb's Conduit Street called Ferrari's that had been there since 1952 and had never in that time changed its tablecloths, its menu, or, as far as Harry could tell, its waitress. Her name was Pina. She was about sixty, Italian by way of Clerkenwell, and she called Harry *love* and Evelyn *Miss*, and she brought Evelyn a pot of tea for one and a toasted cheese sandwich cut into four triangles without being asked, every Thursday, because Evelyn had ordered a pot of tea for one and a toasted cheese sandwich cut into four triangles every Thursday for a year.
 
-They sat at the same table. The one at the back, by the radiator, under a framed photograph of a racehorse called Ribot that nobody had dusted since the Coronation.
+They sat at the same table. The one at the back by the radiator, beneath a framed photograph of a racehorse called Ribot that nobody had dusted since the Coronation.
 
-Harry could not remember whose idea it had been.
+Harry couldn't remember whose idea it had been.
 
-He thought it might have been hers. She had moved out of Grimmauld Place in the September, to a room over a bookbinder's in Rugby Street, and the house had been very quiet afterwards, and on the first Thursday he had found himself on Lamb's Conduit Street at ten to six for no reason he could have given, and she had been sitting at the table at the back by the radiator, reading *Tragedy at Law*, with a pot of tea in front of her and a second cup.
+He thought it might have been hers. She'd moved out of Grimmauld Place in the September, to a room over a bookbinder's in Rugby Street, and the house had been very quiet afterwards, and on the first Thursday he'd found himself on Lamb's Conduit Street at ten to six for no reason he could have given, and she'd been sitting at the table at the back by the radiator reading *Tragedy at Law*, with a pot of tea in front of her and a second cup.
 
-She had not said anything. She had poured him some.
+She hadn't said anything. She'd poured him some.
 
-They had been doing it ever since.
+They'd been doing it ever since.
 
 He came in at four minutes past six on Thursday the twenty-first of October, from Hogsmeade, with stone dust still in the creases of his knuckles, and Pina said *you're late, love*, and he said *I know, sorry*, and went to the back.
 
 Evelyn was there.
 
-She was reading. She did not look up. She had a pot of tea and a second cup and a toasted cheese sandwich cut into four, one triangle gone, and she was reading Josephine Tey, *The Franchise Affair*, which she had read eleven times, and she turned a page, and said, "Four minutes."
+She was reading. She didn't look up. She had a pot of tea and a second cup and a toasted cheese sandwich cut into four, one triangle gone, and she was reading Josephine Tey, *The Franchise Affair*, which she'd read eleven times, and she turned a page and said, "Four minutes."
 
 "There was a goat on the line at Hogsmeade."
 
@@ -49573,37 +49573,37 @@ She was reading. She did not look up. She had a pot of tea and a second cup and 
 
 "That's more like it." She turned another page. "Sit down. The tea's stewed."
 
-He sat down.
+He sat.
 
 She poured him a cup of stewed tea. He drank it.
 
 And he looked at her.
 
-He did it the way he had looked at her for eight years. He had looked at her across a robe shop and a library table and a classroom on the fourth floor and a chamber under a school and a room above a bar in another world and a courtroom and a shack and a clearing in the Forest, and he had never once known what she felt. Not once. Not for a second. She had been the only person in the world he could not read, and he had looked at her and found nothing, every time, for eight years, and called it silence, and then called it rest.
+He did it the way he'd looked at her for eight years. He'd looked at her across a robe shop and a library table and a classroom on the fourth floor and a chamber beneath a school and a room above a bar in another world and a courtroom and a shack and a clearing in the Forest, and he'd never once known what she felt. Not once. Not for a second. She'd been the only person in the world he couldn't read, and he'd looked at her and found nothing, every time, for eight years, and called it silence, and then called it rest.
 
 He looked at her now and found nothing.
 
-He looked round the café. At Pina behind the counter, wiping down the coffee machine with a cloth. At an old man in the window with the *Evening Standard*. At two young women at the next table, students, by their scarves, leaning in towards each other and laughing about something. At a man in a suit by the door, eating soup very fast, looking at his watch.
+He looked round the café. At Pina behind the counter, wiping down the coffee machine with a cloth. At an old man in the window with the *Evening Standard*. At two young women at the next table, students by their scarves, leaning in towards each other and laughing about something. At a man in a suit by the door, eating soup very fast and checking his watch.
 
 He found nothing in any of them.
 
-That was not new now. He had stopped expecting it to change. He did not reach for people as often as he had, at the beginning, in the summer of the funerals. He still did it, sometimes, the way you still put your foot out for a step that has been taken away. But mostly he did not. He looked at people's faces, and listened to what they said, and asked, and they told him. Or they did not. And he had learned to live with the not.
+That wasn't new now. He'd stopped expecting it to change. He didn't reach for people as often as he had at the beginning, in the summer of the funerals. He still did it sometimes, the way you still put your foot out for a step that's been taken away. But mostly he didn't. He looked at people's faces, and listened to what they said, and asked, and they told him. Or they didn't. And he'd learned to live with the not.
 
 He looked back at Evelyn.
 
 She was reading.
 
-And it came to him, sitting at the table at the back by the radiator in Ferrari's on Lamb's Conduit Street, with stone dust in his knuckles and a cup of stewed tea, that for the first time in his life she was not the exception.
+And it came to him, sitting at the table at the back by the radiator in Ferrari's on Lamb's Conduit Street, with stone dust in his knuckles and a cup of stewed tea, that for the first time in his life she wasn't the exception.
 
-She was not the one silence in a loud room. There was no loud room. There was no one he could read and one he could not. There was only this, everywhere, for everyone, the ordinary dark that everybody else had always lived in, where you looked at a face and did not know, and had to ask.
+She wasn't the one silence in a loud room. There was no loud room. There was no one he could read and one he couldn't. There was only this, everywhere, for everyone, the ordinary dark everybody else had always lived in, where you looked at a face and didn't know, and had to ask.
 
-He had always been on the other side of it from her.
+He'd always been on the other side of it from her.
 
-He was not, now. They were on the same side. They were in the same dark.
+He wasn't now. They were on the same side. They were in the same dark.
 
-He had not thought of it like that before.
+He hadn't thought of it like that before.
 
-He thought of it now for some time. He thought about it while she finished her chapter and turned to the next one, and while Pina came and took the sandwich plate and said *all right, Miss?*, and Evelyn said *yes, thank you, Pina*, and while the two students at the next table got up and left, still laughing, with their scarves trailing.
+He thought of it now for some time. He thought about it whilst she finished her chapter and turned to the next, and whilst Pina came and took the sandwich plate and said *all right, Miss?*, and Evelyn said *yes, thank you, Pina*, and whilst the two students at the next table got up and left, still laughing, their scarves trailing.
 
 Then he put his cup down.
 
@@ -49625,9 +49625,9 @@ She looked up.
 
 * * *
 
-She did not answer at once.
+She didn't answer at once.
 
-She put her book down. She did it quite carefully. She put a paper napkin in it to keep her place, and closed it, and laid it on the tablecloth beside her cup, square to the edge of the table. Then she looked at him across the table for a long moment, with her plain quiet face that had never once in eight years told him anything.
+She put her book down. She did it quite carefully. She slipped a paper napkin in to keep her place, closed it, and laid it on the tablecloth beside her cup, square to the edge of the table. Then she looked at him across the table for a long moment with her plain quiet face that had never once in eight years told him anything.
 
 "You've never asked me that," she said.
 
@@ -49639,7 +49639,7 @@ She put her book down. She did it quite carefully. She put a paper napkin in it 
 
 "Why not?"
 
-He thought about it honestly, because she had asked honestly.
+He thought about it honestly, because she'd asked honestly.
 
 "Because I never could tell, with you," said Harry. "Not once. Not ever. So I never knew what I'd lost." He turned his cup on its saucer. "Everybody else, I knew what was gone. I could feel the place where it had been. With you there wasn't a place. It was just the same as it had always been." He looked at her. "And I think I was frightened of asking. Because I'd have to hear it. I couldn't just know."
 
@@ -49653,23 +49653,23 @@ Evelyn looked at him.
 
 He waited.
 
-"On an ordinary Thursday," said Evelyn, in exactly the voice in which she had once told Professor Binns that he had a date wrong by eleven years, "I should say I am about thirty per cent irritated with you. That varies. It goes up when you're late, and when you don't eat, and when you ask Pina how she's feeling and then actually listen to the answer for nine minutes while my tea goes cold. It went up to about sixty per cent in June of last year, over the *Prophet*. It's come down since." She considered. "I'd put it at twenty-eight tonight. You were four minutes late, but you had a goat."
+"On an ordinary Thursday," said Evelyn, in exactly the voice in which she'd once told Professor Binns he had a date wrong by eleven years, "I should say I'm about thirty per cent irritated with you. That varies. It goes up when you're late, and when you don't eat, and when you ask Pina how she's feeling and then actually listen to the answer for nine minutes whilst my tea goes cold. It went up to about sixty per cent in June of last year, over the *Prophet*. It's come down since." She considered. "I'd put it at twenty-eight tonight. You were four minutes late, but you had a goat."
 
 "Twenty-eight."
 
-"Roughly. I haven't got instruments." She did not smile. "Then there's fondness. That's harder to measure. It's been going up steadily since about 1992, with a dip in the spring of 1998 when you didn't know who I was on a step and I didn't much like you. It's recovered. I'd say it's at about… a great deal. I'd rather not give a figure. The figure is embarrassing."
+"Roughly. I haven't got instruments." She didn't smile. "Then there's fondness. That's harder to measure. It's been going up steadily since about 1992, with a dip in the spring of 1998 when you didn't know who I was on a step and I didn't much like you. It's recovered. I'd say it's at about… a great deal. I'd rather not give a figure. The figure is embarrassing."
 
-Harry did not say anything.
+Harry didn't interrupt.
 
 "And then there's the rest," said Evelyn.
 
 She stopped.
 
-He watched her stop. He watched her face, which was perfectly still, and her hands, which were folded on the tablecloth, and which were holding each other, he noticed, rather hard.
+He watched her stop. He watched her face, which was perfectly still, and her hands, folded on the tablecloth, which were holding each other, he noticed, rather hard.
 
 "The rest is the part I haven't got a word for," she said. "Or I hadn't. I've been keeping notes on it since I was twelve. There are fourteen notebooks at Grimmauld Place and nine in my room in Rugby Street, and it's in all of them, on and off, and I never once called it anything. I just wrote down when it happened. *Potter came into the library. Potter laughed at something. Potter was in the hospital wing and I stayed until Pomfrey threw me out at four.* I wrote it down the way you'd write down the weather." She looked at her hands. "I didn't know what it was. I was trained not to know what things were. That was the whole point of me."
 
-She was quiet for a moment.
+She was quiet a moment.
 
 "I opened my mind once," said Evelyn. "In a house in the dark. For you. You were there. You felt all of it. You know what was at the bottom."
 
@@ -49681,37 +49681,37 @@ She was quiet for a moment.
 
 "Well," said Evelyn. "I'm saying it now."
 
-She looked up at him. And she said it, without percentages, without notebooks, quite plainly, the way she said everything, as though she were reporting a fact that had been in the register all along and had only now been checked.
+She looked up at him. And she said it without percentages, without notebooks, quite plainly, the way she said everything, as though reporting a fact that had been in the register all along and had only now been checked.
 
-"I love you, Potter," said Evelyn. "I have done for a very long time. I don't know exactly how long. I'm usually very good at that sort of thing, and I don't know." She did not look away. "That's what I feel. About you. Since you asked."
+"I love you, Potter," said Evelyn. "I have done for a very long time. I don't know exactly how long. I'm usually very good at that sort of thing, and I don't know." She didn't look away. "That's what I feel. About you. Since you asked."
 
 The radiator ticked.
 
-At the counter, Pina dropped a spoon, and said something in Italian, and picked it up.
+At the counter, Pina dropped a spoon, said something in Italian, and picked it up.
 
-Harry sat at the table at the back of Ferrari's under the photograph of Ribot and looked at her.
+Harry sat at the table at the back of Ferrari's beneath the photograph of Ribot and looked at her.
 
-He could not feel it.
+He couldn't feel it.
 
-He had felt it once. In the Shrieking Shack, through a door that had been shut, louder than Hagrid on a rock in the sea. He had felt it come through him like water through a broken wall, and he had known it the way he had known everything, from the inside, without a word. He could not feel it now. He could not feel anything from her. He had her word for it, and her face, and her hands holding each other on the tablecloth, and that was all.
+He'd felt it once. In the Shrieking Shack, through a door that had been shut, louder than Hagrid on a rock in the sea. He'd felt it come through him like water through a broken wall, and he'd known it the way he'd known everything, from the inside, without a word. He couldn't feel it now. He couldn't feel anything from her. He had her word for it, and her face, and her hands holding each other on the tablecloth, and that was all.
 
-He found that it was enough.
+He found it was enough.
 
-He found that it was a great deal more than enough. He had not known that. He had spent his whole life knowing what people felt before they said it, or instead of their saying it, or when they were saying something else entirely. He had never once in his life been *told*. Not like this. Not by somebody looking straight at him across a table, who did not know whether he would believe her, and said it anyway.
+He found it was a great deal more than enough. He hadn't known that. He'd spent his whole life knowing what people felt before they said it, or instead of their saying it, or when they were saying something else entirely. He'd never once in his life been *told*. Not like this. Not by somebody looking straight at him across a table, who didn't know whether he'd believe her, and said it anyway.
 
-He did not know what to do with his face.
+He didn't know what to do with his face.
 
-He did not try to do anything with it.
+He didn't try to do anything with it.
 
 "Can I tell you mine?" he said.
 
 "You'd better," said Evelyn. "I've just said all that out loud in Ferrari's. Pina's listening."
 
-"I'm not," said Pina, from the counter.
+"I'm not," said Pina from the counter.
 
 Harry looked down at the tablecloth.
 
-He had never done this. That was the thing. He had read a thousand people, ten thousand, a whole Great Hall at once, and he had never once had to say what he felt, because he had never once in his life been with anybody who did not already know, or who could not have found out by looking at him the way he looked at them. He did not know how to do it. He did not know where to start.
+He'd never done this. That was the thing. He'd read a thousand people, ten thousand, a whole Great Hall at once, and he'd never once had to say what he felt, because he'd never once in his life been with anybody who didn't already know, or who couldn't have found out by looking at him the way he looked at them. He didn't know how to do it. He didn't know where to start.
 
 So he started where she had.
 
@@ -49729,15 +49729,15 @@ Evelyn looked at him for a long time.
 
 Her face did something.
 
-He did not know what it was. He would never know what it was, now, not from the inside. He looked at it, and it was her face, plain and quiet, the face people forgot. And it did something he had never seen it do, not in eight years, not once.
+He didn't know what it was. He'd never know now, not from the inside. He looked at it, and it was her face, plain and quiet, the face people forgot. And it did something he'd never seen it do, not in eight years, not once.
 
-He did not know what it meant.
+He didn't know what it meant.
 
 "Are you all right?" said Harry.
 
 "No," said Evelyn. "I'll tell you in a minute."
 
-She picked up her cup. It was empty. She looked into it, and put it down again.
+She picked up her cup. It was empty. She looked into it and put it down again.
 
 "Finish your tea, Potter," she said.
 
@@ -49745,7 +49745,7 @@ She picked up her cup. It was empty. She looked into it, and put it down again.
 
 It was raining when they came out.
 
-It had been raining all day, on and off, the thin grey London rain that does not so much fall as hang about, and it was dark, and the streetlamps were on, and Lamb's Conduit Street was shining. They stood in the doorway of Ferrari's under the little striped awning, with the bell still going behind them on its spring, and looked out at it.
+It had been raining all day, on and off, the thin grey London rain that doesn't so much fall as hang about, and it was dark, and the streetlamps were on, and Lamb's Conduit Street was shining. They stood in the doorway of Ferrari's under the little striped awning, the bell still jangling behind them on its spring, and looked out at it.
 
 Neither of them had an umbrella.
 
@@ -49757,7 +49757,7 @@ Neither of them had an umbrella.
 
 "I know."
 
-She did up the top button of her coat. She did it with some care. Then she did not go anywhere. She stood in the doorway of Ferrari's under the awning with the rain dripping off the edge of it in a line, and looked out at the street, and he stood beside her, and neither of them moved.
+She did up the top button of her coat. She did it with some care. Then she didn't go anywhere. She stood in the doorway of Ferrari's under the awning with the rain dripping off its edge in a line, looking out at the street, and he stood beside her, and neither of them moved.
 
 "Selwyn," said Harry.
 
@@ -49771,17 +49771,17 @@ She turned her head and looked at him.
 
 He kissed her.
 
-It was very brief. It was the doorway of a café on Lamb's Conduit Street, in the rain, with the bell going on its spring behind them and Pina very carefully not looking through the glass, and the awning dripping, and a man going past with a newspaper over his head who did not look at them at all. He did not know what she felt. He did not know, while it was happening, and he did not know afterwards, and he found that he did not need to, because she had told him, and because her hand had come up and taken hold of the front of his coat, quite firmly, by the lapel, the way you take hold of something you have decided not to let go of.
+It was very brief. It was the doorway of a café on Lamb's Conduit Street in the rain, with the bell going on its spring behind them and Pina very carefully not looking through the glass, and the awning dripping, and a man going past with a newspaper over his head who didn't look at them at all. He didn't know what she felt. He didn't know whilst it was happening, and he didn't know afterwards, and he found he didn't need to, because she'd told him, and because her hand had come up and taken hold of the front of his coat, quite firmly, by the lapel, the way you take hold of something you've decided not to let go of.
 
 He stepped back.
 
-She did not let go of the coat.
+She didn't let go of the coat.
 
-She looked at him. Her face was doing the thing again, the thing he had never seen it do, and he still did not know what it was, and he thought that he might spend a very long time finding out.
+She looked at him. Her face was doing the thing again, the thing he'd never seen it do, and he still didn't know what it was, and he thought he might spend a very long time finding out.
 
-Then she let go of his lapel, and smoothed it down, flat, with two fingers, the way you would straighten a page.
+Then she let go of his lapel and smoothed it down flat with two fingers, the way you'd straighten a page.
 
-"Eight years and eighty-two days," said Evelyn. "Since Madam Malkin's. I worked it out on the way here, in case it came up." She did the top button of her coat up again, though it was already done. "I'd like it noted, Potter. That's a very long time to wait for somebody to ask a question."
+"Eight years and eighty-two days," said Evelyn. "Since Madam Malkin's. I worked it out on the way here, in case it came up." She did up the top button of her coat again, though it was already done. "I'd like it noted, Potter. That's a very long time to wait for somebody to ask a question."
 
 <->
 
