@@ -48803,9 +48803,9 @@ She didn't look at him. She stood on the shingle with the closed watch in her ha
 
 ## Chapter 81: Funerals
 
-They buried Millicent Bulstrode on the ninth of May, in the churchyard of St Botolph's in a village four miles outside Louth, in the rain.
+They buried Millicent Bulstrode on the ninth of May in the churchyard of St Botolph's, in a village four miles outside Louth, in the rain.
 
-Her mother had moved there from Swindon two years before, for the dog. Harry learned this at the gate, from her mother, who was standing under a large black umbrella with the dog on a lead beside her, and who told him before he had said anything at all.
+Her mother had moved there from Swindon two years before, for the dog. Harry learned this at the gate from her mother, who was standing under a large black umbrella with the dog on a lead beside her, and who told him before he'd said anything at all.
 
 "You're Potter," she said.
 
@@ -48813,21 +48813,21 @@ Her mother had moved there from Swindon two years before, for the dog. Harry lea
 
 "Thought so. She said you'd be thin." She looked him up and down. "You're thinner than she said."
 
-She was very big. She was as tall as Harry and twice as wide, in a black coat that strained at the buttons and a black hat with a small sad feather in it, and she had Millicent's square jaw and Millicent's small sharp eyes and Millicent's way of standing with her feet apart, as though somebody might try to move her. The dog was a lurcher, mostly, large and grey, with its ears going in two directions. It looked at Harry with great interest and sat on his foot.
+She was very big. She was as tall as Harry and twice as wide, in a black coat that strained at the buttons and a black hat with a small sad feather in it, and she had Millicent's square jaw and Millicent's small sharp eyes and Millicent's way of standing with her feet apart, as though somebody might try to move her. The dog was mostly lurcher, large and grey, with its ears going in two directions. It looked at Harry with great interest and sat on his foot.
 
 "Brian," said Mrs Bulstrode. "Off."
 
-Brian did not get off.
+Brian didn't get off.
 
 "He likes you," said Mrs Bulstrode. "Doesn't like anybody. Ate a chair in Swindon. That's why we came here. More room, and the chairs are further apart." She looked at Harry again. "She liked you as well."
 
 Harry looked at her face.
 
-He did not know what was in it. He looked for a long time, under the umbrella, in the rain, with a dog on his foot, and it was a large plain wet face under a hat with a sad feather, and he did not know whether she hated him. He thought she might. He thought he would, in her place. Her daughter had gone to the Forest because of him, and stood in front of his body for four hours in the dark, and been hit, and got up, and been hit, and not got up.
+He didn't know what was in it. He looked for a long time, under the umbrella, in the rain, with a dog on his foot, and it was a large plain wet face beneath a hat with a sad feather, and he didn't know whether she hated him. He thought she might. He thought he would, in her place. Her daughter had gone to the Forest because of him, and stood in front of his body for four hours in the dark, and been hit, and got up, and been hit, and not got up.
 
-He would have known, three weeks ago. He would have known from the lane.
+He'd have known three weeks ago. He'd have known from the lane.
 
-"Mrs Bulstrode," said Harry. "I'm very sorry. I don't… I'm not very good at telling, any more. What people are feeling. I used to be. I'm not now." He stopped. It was the first time he had said it to anybody. "So I'm going to have to ask you. Are you angry with me?"
+"Mrs Bulstrode," said Harry. "I'm very sorry. I don't… I'm not very good at telling any more. What people are feeling. I used to be. I'm not now." He stopped. It was the first time he'd said it to anyone. "So I'm going to have to ask you. Are you angry with me?"
 
 Mrs Bulstrode looked at him.
 
@@ -48837,7 +48837,7 @@ He nodded.
 
 "I'm angry with everybody," said Mrs Bulstrode. "I'm angry with the vicar. I'm angry with the rain. I'm angry with Brian, and he's never done a thing wrong in his life except the chair." She looked down at the dog. "And I'm angry with you. Because she'd still be here if it wasn't for you." She looked back up. "And she wouldn't have been anything like as happy. Not for a minute of it. Not since she was eleven."
 
-Harry did not say anything.
+Harry didn't answer.
 
 "She wrote to me every week," said Mrs Bulstrode. "Seven years. Every Sunday. Do you know what she said about you? First letter. First week. She said *there's a boy in my house called Potter who came in the girls' bathroom when there was a troll and stood in front of me like an idiot. I think he might be all right.*" Her mouth went very straight. "Last letter, she said the same. Word for word. Except she took out *might*."
 
@@ -48849,77 +48849,77 @@ The rain came down on the umbrella.
 
 "Don't mention it," said Mrs Bulstrode.
 
-She turned and went up the path to the church, with the dog, and after a moment Harry followed her.
+She turned and went up the path to the church with the dog, and after a moment Harry followed her.
 
 * * *
 
-They buried Hagrid on the edge of the Forest on the twelfth, and it took three hours, because the centaurs came.
+They buried Hagrid at the edge of the Forest on the twelfth, and it took three hours, because the centaurs came.
 
-Evelyn noted the time they arrived. It was a quarter past ten. The grave had been dug by Hagrid's brother, alone, with his hands, the evening before, at the place on the edge of the trees where Hagrid had once kept a pumpkin patch and a dragon's egg and a three-headed dog, and it was eleven feet long and seven feet deep and very neat at the corners. Nobody had asked him to make it neat. He had looked at it afterwards for a long time and then gone back into the trees.
+Evelyn noted the time they arrived. It was a quarter past ten. Hagrid's brother had dug the grave alone, with his hands, the evening before, at the place at the edge of the trees where Hagrid had once kept a pumpkin patch and a dragon's egg and a three-headed dog, and it was eleven feet long and seven feet deep and very neat at the corners. Nobody had asked him to make it neat. He'd looked at it afterwards for a long time and then gone back into the trees.
 
 He came out again at ten, carrying Fang.
 
-He did not carry him because Fang could not walk. Fang could walk. He had walked from the castle to the grave behind the coffin, very slowly, with his nose almost on the ground. But when the giant came out of the trees he went to Fang and picked him up in one hand, the way you would pick up a cat, and stood at the head of the grave with the dog held against his chest, and Fang let him.
+He didn't carry him because Fang couldn't walk. Fang could walk. He'd walked from the castle to the grave behind the coffin, very slowly, with his nose almost on the ground. But when the giant came out of the trees he went to Fang and picked him up in one hand, the way you'd pick up a cat, and stood at the head of the grave with the dog held against his chest, and Fang let him.
 
 The centaurs came at a quarter past.
 
-There were forty-one of them. Evelyn counted. They came out of the trees all together and stood in a long line along the edge of the Forest behind the grave, with their bows on their backs, not speaking. One of them, a grey-haired one with a beard, stepped forward and said something in a language Evelyn did not know, and then said it again in English, quite formally, for the humans, as though he were reading a treaty.
+There were forty-one of them. Evelyn counted. They came out of the trees all together and stood in a long line along the edge of the Forest behind the grave, bows on their backs, not speaking. One of them, grey-haired and bearded, stepped forward and said something in a language Evelyn didn't know, and then said it again in English, quite formally, for the humans, as though reading a treaty.
 
 "He was a friend of the Forest," said the centaur. "He was foolish. He was kind to things that did not deserve it. He did not understand the stars." He paused. "We will remember him."
 
 Then he stepped back.
 
-McGonagall spoke. Professor Sprout spoke, and cried, and could not finish, and Professor Flitwick finished it for her. Ron and Hermione stood with the Weasleys. Neville stood with his hands folded in front of him, very straight, at the head of eleven children from Hufflepuff and Ravenclaw who had asked to come and had been allowed to, and who had made a wreath out of the flowers from the greenhouses, very badly, and put it on the coffin. The Ravenclaw girl had shoes on now.
+McGonagall spoke. Professor Sprout spoke, and cried, and couldn't finish, and Professor Flitwick finished it for her. Ron and Hermione stood with the Weasleys. Neville stood very straight with his hands folded in front of him, at the head of eleven children from Hufflepuff and Ravenclaw who'd asked to come and been allowed to, and who'd made a wreath out of the flowers from the greenhouses, very badly, and laid it on the coffin. The Ravenclaw girl had shoes on now.
 
 Evelyn stood beside Potter.
 
-She was watching him. She noted that she was doing it. She had watched him for seven years, the way you watch a pan on a stove, and she had never once needed to, because he had always known exactly where she was and what she was not saying, and that had been enough. Now she watched him and he did not know she was there.
+She was watching him. She noted that she was doing it. She'd watched him for seven years, the way you watch a pan on a stove, and she'd never once needed to, because he'd always known exactly where she was and what she wasn't saying, and that had been enough. Now she watched him, and he didn't know she was there.
 
 He was looking at the giant.
 
-He looked at him for a long time. She knew why. She could see him doing it, the thing he did now, all the time, without seeming to know he did it. He looked at a person and waited. Then he looked a little harder, the way you look at a page in bad light. Then he looked away.
+He looked at him for a long time. She knew why. She could see him doing it, the thing he did now all the time without seeming to know he did it. He looked at a person and waited. Then he looked a little harder, the way you look at a page in bad light. Then he looked away.
 
-He had always been able to feel Hagrid from anywhere.
+He'd always been able to feel Hagrid from anywhere.
 
-She had heard him say it, once, at fifteen, half asleep on a train: *I could find Hagrid in the dark from the other end of the country. He's the loudest thing there is.*
+She'd heard him say it once, at fifteen, half asleep on a train. *I could find Hagrid in the dark from the other end of the country. He's the loudest thing there is.*
 
-The giant stood at the head of the grave with Fang held against his chest and his great face wet, and Potter looked at him and waited, and did not find anything, and looked away.
+The giant stood at the head of the grave with Fang held against his chest and his great face wet, and Potter looked at him and waited, and found nothing, and looked away.
 
 At one o'clock they lowered the coffin.
 
-It took nine people and a charm. The giant did not help. He stood and watched them do it, and when it was down, he knelt, very slowly, the way a building comes down when you take out the bottom floor, and put Fang on the ground, and put one enormous hand flat on the earth beside the grave.
+It took nine people and a charm. The giant didn't help. He stood and watched them do it, and when it was down he knelt, very slowly, the way a building comes down when you take out the bottom floor, and set Fang on the ground, and laid one enormous hand flat on the earth beside the grave.
 
-He said something. One word. Evelyn did not hear what it was.
+He said something. One word. Evelyn didn't hear what it was.
 
-Then he got up and went back into the trees, and the centaurs went with him, and Fang did not.
+Then he got up and went back into the trees, and the centaurs went with him, and Fang didn't.
 
-Fang stayed at the grave. He lay down at the head of it with his nose on his paws, and when McGonagall tried to lead him back to the castle, he would not come. When Neville tried, he would not come. When Potter knelt beside him and put a hand on his head, he lifted his eyes, and his tail moved once in the grass, and he put his head back down.
+Fang stayed at the grave. He lay down at the head of it with his nose on his paws, and when McGonagall tried to lead him back to the castle, he wouldn't come. When Neville tried, he wouldn't come. When Potter knelt beside him and put a hand on his head, he lifted his eyes, and his tail thumped once in the grass, and he put his head back down.
 
 "He'll come when he's hungry," said Weasley.
 
-He did not come when he was hungry. Neville took food out to him every evening for nine days. On the tenth day he came, very slowly, up the lawn to the castle, and lay down in the doorway of the empty hut, and stayed there.
+He didn't come when he was hungry. Neville took food out to him every evening for nine days. On the tenth day he came, very slowly, up the lawn to the castle, and lay down in the doorway of the empty hut, and stayed there.
 
 * * *
 
-Gilderoy Lockhart's funeral, on the fifteenth of May, was attended by three thousand, two hundred and eighty people, eleven photographers, a brass band and a hippogriff.
+Gilderoy Lockhart's funeral on the fifteenth of May was attended by three thousand two hundred and eighty people, eleven photographers, a brass band and a hippogriff.
 
-Harry did not know who had brought the hippogriff.
+Harry didn't know who'd brought the hippogriff.
 
-It was at Highgate Cemetery, in the old West part, among the ivy and the stone angels and the great black Victorian tombs leaning into each other under the trees. It was a hot bright morning. There were banners. There were a great many banners. They had been made by the Gilderoy Lockhart Appreciation Society, which had two hundred and forty branches in nine countries, and they were mostly lilac, and they said things like *GILDEROY: A LIFE OF MAGIC* and *HE FACED THE BANSHEE* and *FOREVER CHARMING*, in gold letters, and one, held up very proudly by two elderly witches from Bognor Regis, said *WE STILL HAVE ALL YOUR BOOKS*.
+It was at Highgate Cemetery, in the old West part, among the ivy and the stone angels and the great black Victorian tombs leaning into each other under the trees. It was a hot bright morning. There were banners. There were a great many banners. They'd been made by the Gilderoy Lockhart Appreciation Society, which had two hundred and forty branches in nine countries, and they were mostly lilac, and they said things like *GILDEROY: A LIFE OF MAGIC* and *HE FACED THE BANSHEE* and *FOREVER CHARMING*, in gold letters. One, held up very proudly by two elderly witches from Bognor Regis, said *WE STILL HAVE ALL YOUR BOOKS*.
 
 Lockhart had planned it.
 
-All of it. He had left instructions with his solicitor in 1993, in a long letter written from a bed in St Mungo's with his back in a cast, a month after a tunnel under a school had come down on him. The solicitor, a small dry man named Mr Fothergill, read some of them out at the start, in a voice that suggested he had been reading them to himself for five years and had given up being surprised. The music was to be loud. The flowers were to be peonies, which were the only flower with any sense of occasion. The coffin was to be lilac, with gold handles. Nobody was to wear black, because black made everyone look ill, and he would not have his mourners looking ill in the photographs.
+All of it. He'd left instructions with his solicitor in 1993, in a long letter written from a bed in St Mungo's with his back in a cast, a month after a tunnel under a school had come down on him. The solicitor, a small dry man named Mr Fothergill, read some of them out at the start, in a voice that suggested he'd been reading them to himself for five years and had given up being surprised. The music was to be loud. The flowers were to be peonies, which were the only flower with any sense of occasion. The coffin was to be lilac, with gold handles. Nobody was to wear black, because black made everyone look ill, and he wouldn't have his mourners looking ill in the photographs.
 
 Nobody wore black.
 
-Harry wore a dark green jacket of Sirius's that was too big in the shoulders. Evelyn wore her grey cardigan. Ron wore maroon, because his mother had made him, and Hermione wore blue. In front of them a wizard of about ninety, in robes the colour of a ripe apricot, wept loudly and steadily into a lilac handkerchief through the whole thing and would not be comforted.
+Harry wore a dark green jacket of Sirius's that was too big in the shoulders. Evelyn wore her grey cardigan. Ron wore maroon, because his mother had made him, and Hermione wore blue. In front of them a wizard of about ninety, in robes the colour of a ripe apricot, wept loudly and steadily into a lilac handkerchief through the whole thing and wouldn't be comforted.
 
-And at the end, Mr Fothergill unfolded the last sheet of the letter and read the eulogy Lockhart had written for himself.
+And at the end Mr Fothergill unfolded the last sheet of the letter and read the eulogy Lockhart had written for himself.
 
 Harry had expected it to be funny.
 
-It was, in places. There was a paragraph about the yeti that made the whole of Highgate Cemetery laugh at once, three thousand people under the trees, and a line about his own hair that made the elderly witches from Bognor Regis sob. But most of it was not funny. Most of it was very simple. It was a man of forty, lying in a hospital bed with his back broken, writing down what he would like people to know if he did not get up again.
+It was, in places. There was a paragraph about the yeti that made the whole of Highgate Cemetery laugh at once, three thousand people under the trees, and a line about his own hair that made the elderly witches from Bognor Regis sob. But most of it wasn't funny. Most of it was very simple. It was a man of forty, lying in a hospital bed with his back broken, writing down what he'd like people to know if he didn't get up again.
 
 *I have always been told I am vain,* Mr Fothergill read. *This is true. I am very vain. I have spent my life wanting to be looked at, and I have been, a great deal, and it has never once been enough, and I do not expect it ever will be.*
 
@@ -48937,33 +48937,33 @@ It was, in places. There was a paragraph about the yeti that made the whole of H
 
 Mr Fothergill folded the letter.
 
-There was a silence under the trees. Three thousand people. Nobody moved. And then, from somewhere near the back, one of the elderly witches from Bognor Regis began, quite shakily, to clap, and then the person next to her did, and then all of them, the whole of Highgate Cemetery, three thousand two hundred and eighty people under the ivy and the stone angels, clapping, on and on, for nearly four minutes, until the brass band gave up waiting and began to play.
+There was a silence under the trees. Three thousand people. Nobody moved. And then, from somewhere near the back, one of the elderly witches from Bognor Regis began, quite shakily, to clap, and then the person next to her did, and then all of them, the whole of Highgate Cemetery, three thousand two hundred and eighty people under the ivy and the stone angels, clapping on and on for nearly four minutes, until the brass band gave up waiting and began to play.
 
 Harry stood in the middle of it.
 
-He could hear it. He could hear all of it. He did not know what any of them were feeling.
+He could hear it. He could hear all of it. He didn't know what any of them were feeling.
 
-He found that he was clapping too.
+He found he was clapping too.
 
 * * *
 
-Severus Snape was buried on the nineteenth, in the municipal cemetery at the end of a long street of red-brick terraces in a mill town in the north, with a disused chimney over it and the river going past at the bottom of the hill.
+Severus Snape was buried on the nineteenth in the municipal cemetery at the end of a long street of red-brick terraces in a mill town in the north, with a disused chimney above it and the river running past at the bottom of the hill.
 
 There were six of them.
 
-Evelyn counted them twice, because she could not believe the number. Potter. Herself. Professor McGonagall, in black, very straight. Professor Slughorn, who had come by Floo to a pub on the corner and walked up the hill in a velvet waistcoat, and was out of breath, and kept dabbing at his forehead with a handkerchief. The man from the council, who had dug the grave and was standing at a respectful distance by his barrow, smoking. And an old woman.
+Evelyn counted twice, because she couldn't believe the number. Potter. Herself. Professor McGonagall, in black, very straight. Professor Slughorn, who'd come by Floo to a pub on the corner and walked up the hill in a velvet waistcoat, out of breath, dabbing at his forehead with a handkerchief. The man from the council, who'd dug the grave and was standing at a respectful distance by his barrow, smoking. And an old woman.
 
 Nobody knew who she was.
 
-She was very old. She was in a brown coat with a fur collar that had mostly worn away, and she was standing on the far side of the grave from the rest of them, by herself, with a string bag in one hand with two oranges in it. She did not speak to anybody. She did not look at anybody. She stood at the grave with her string bag and looked down at the coffin, which was plain, and black, and had no name on it, because Aberforth had not known what to put.
+She was very old. She wore a brown coat with a fur collar that had mostly worn away, and she stood alone on the far side of the grave from the rest of them, with a string bag in one hand with two oranges in it. She spoke to nobody. She looked at nobody. She stood at the grave with her string bag and looked down at the coffin, which was plain and black and had no name on it, because Aberforth hadn't known what to put.
 
 Professor McGonagall said a few words.
 
-They were very short. She said that Severus Snape had been a pupil of hers, and a colleague, and that she had not understood him, and that she had been wrong about a great many things, and that she did not know yet which of them. She said she would think about it. Then she stopped.
+They were very short. She said Severus Snape had been a pupil of hers, and a colleague, and that she hadn't understood him, and that she'd been wrong about a great many things, and that she didn't know yet which of them. She said she'd think about it. Then she stopped.
 
 Slughorn said something about Potions.
 
-It was quite long, and it was about a boy of eleven who had come into his dungeon and made a Draught of Peace on his first attempt that was better than his own, and it was the kindest thing anybody said that day, and Evelyn could see that Slughorn did not know it was kind. He thought it was an anecdote.
+It was quite long, and it was about a boy of eleven who'd come into his dungeon and made a Draught of Peace on his first attempt that was better than his own, and it was the kindest thing anybody said that day, and Evelyn could see that Slughorn didn't know it was kind. He thought it was an anecdote.
 
 Then nobody said anything.
 
@@ -48975,17 +48975,17 @@ She thought about a candle on a floor.
 
 She thought about a voice saying *Look at me*, to somebody else.
 
-She thought about the six and a half years she had sat in his dungeon, at the back, on the left, by the store cupboard. The thirty-nine reports he had written on her in his small cramped hand, every one with her name spelled correctly, without being told. The Outstanding he had given her in her fifth year, which she had not expected and which she had kept, folded in four, in the back of her copy of *The Nine Tailors*.
+She thought about the six and a half years she'd sat in his dungeon, at the back, on the left, by the store cupboard. The thirty-nine reports he'd written on her in his small cramped hand, every one with her name spelled right, without being told. The Outstanding he'd given her in her fifth year, which she hadn't expected and had kept, folded in four, in the back of her copy of *The Nine Tailors*.
 
-She thought about the word she had said, in a doorway, with her hand perfectly steady.
+She thought about the word she'd said in a doorway, with her hand perfectly steady.
 
-She did not say anything.
+She said nothing.
 
-The old woman with the string bag looked up, once, across the grave. She looked at Evelyn. It was a very short look. Then she looked down again, and after a moment she bent, quite stiffly, and put one of the oranges on the edge of the grave, on the clay, and turned round, and went away down the hill between the stones towards the terraces and the river, and did not look back.
+The old woman with the string bag looked up once across the grave. She looked at Evelyn. It was a very short look. Then she looked down again, and after a moment she bent, quite stiffly, and put one of the oranges on the edge of the grave, on the clay, and turned and went away down the hill between the stones towards the terraces and the river, and didn't look back.
 
 Nobody went after her.
 
-The man from the council began to fill the grave in.
+The man from the council began to fill the grave.
 
 * * *
 
@@ -49003,27 +49003,27 @@ They walked on.
 
 "I wanted you to know I checked," said Evelyn.
 
-Potter was silent.
+Potter didn't answer.
 
-He did not try. She noted that. He walked beside her down the long street of red-brick terraces, with the washing out and the radio going, and he did not tell her it had not been her fault, or that she had saved his life, or that Snape would have destroyed him, or any of the things that were true. He did not say anything at all.
+He didn't try. She noted that. He walked beside her down the long street of red-brick terraces, with the washing out and the radio going, and he didn't tell her it hadn't been her fault, or that she'd saved his life, or that Snape would have destroyed him, or any of the things that were true. He said nothing at all.
 
-She was more grateful for it than she would have known how to say.
+She was more grateful for it than she'd have known how to say.
 
 * * *
 
-The trials began on the first of June, in Courtroom Ten, and went on all summer.
+The trials began on the first of June in Courtroom Ten and went on all summer.
 
-Harry went to most of them. He sat on the second bench from the front, on the left, where he could see the chair in the middle of the floor with its chains, and he listened. He testified, when he was asked to. He did not testify when he was not. He sat in the dark courtroom day after day, under the high stone benches full of witches and wizards in plum-coloured robes, and he watched the faces of the people in the chair, and he did not know what any of them felt.
+Harry went to most of them. He sat on the second bench from the front, on the left, where he could see the chair in the middle of the floor with its chains, and he listened. He testified when he was asked to. He didn't when he wasn't. He sat in the dark courtroom day after day beneath the high stone benches full of witches and wizards in plum-coloured robes, and watched the faces of the people in the chair, and didn't know what any of them felt.
 
 That was the strangest part.
 
-He had sat in this room before. He had stood in the doorway of it, last summer, and read every person on the benches at once, and known which of them were frightened and which of them were pleased and which of them were thinking about their lunch. Now he sat and watched Lucius Malfoy in the chair, grey and very thin and perfectly composed, answering every question in a low courteous voice, and he could not tell whether Lucius was ashamed, or afraid, or neither, or only very tired.
+He'd sat in this room before. He'd stood in its doorway last summer and read every person on the benches at once, and known which were frightened and which were pleased and which were thinking about their lunch. Now he sat and watched Lucius Malfoy in the chair, grey and very thin and perfectly composed, answering every question in a low courteous voice, and he couldn't tell whether Lucius was ashamed, or afraid, or neither, or only very tired.
 
 Lucius was given eleven years.
 
-He did not look at anybody when they read it out. He stood up when he was told to and went out between the two Aurors with his head up, and the door shut behind him.
+He looked at nobody when they read it out. He stood when he was told to and went out between the two Aurors with his head up, and the door shut behind him.
 
-Narcissa was tried on the eighth. She sat in the chair in a grey dress with her hands folded and answered everything, very quietly, in as few words as possible, and when they asked her where she had been on the night of the first of May, she said, "In the Forest. Looking for my son."
+Narcissa was tried on the eighth. She sat in the chair in a grey dress with her hands folded and answered everything very quietly, in as few words as possible, and when they asked her where she'd been on the night of the first of May, she said, "In the Forest. Looking for my son."
 
 "And did you find him?"
 
@@ -49031,29 +49031,29 @@ Narcissa was tried on the eighth. She sat in the chair in a grey dress with her 
 
 They called Draco.
 
-He came in from the side door in plain dark robes, very white, and sat down in the witness chair, which was not the chair with the chains but was close enough to it that Harry saw him look at the chains once and then not again. He answered four questions. He said he had been in the Forest. He said he had been one of the people standing round Harry Potter's body. He said he had held his position until the fighting stopped. He said he did not know why he had gone.
+He came in by the side door in plain dark robes, very white, and sat in the witness chair, which wasn't the chair with the chains but was close enough that Harry saw him look at the chains once and then not again. He answered four questions. He said he'd been in the Forest. He said he'd been one of the people standing round Harry Potter's body. He said he'd held his position until the fighting stopped. He said he didn't know why he'd gone.
 
 "You don't know?" said the witch asking the questions.
 
 "No," said Draco.
 
-He did not look at Harry. Harry was on the second bench from the front, on the left, eleven feet away, and Draco did not look at him once, not when he came in, not while he answered, not when he went out.
+He didn't look at Harry. Harry was on the second bench from the front, on the left, eleven feet away, and Draco didn't look at him once, not when he came in, not whilst he answered, not when he went out.
 
-Narcissa was given a fine and three years' probation and the loss of her wand for one year, which was the wand Draco had carried into the Forest. The Wizengamot did not say, in so many words, that it was because of where her son had been on the night of the first of May. It did not need to.
+Narcissa was given a fine, three years' probation and the loss of her wand for one year, which was the wand Draco had carried into the Forest. The Wizengamot didn't say in so many words that it was because of where her son had been on the night of the first of May. It didn't need to.
 
 Corvin Selwyn was tried on the twenty-second, in his absence.
 
-His chair was empty. They read out the charges to it, all twenty-nine of them, one after another, in a clerk's flat voice: the Commission, the registers, the hearings in Courtroom Ten, the cells under it. Evelyn sat beside Harry on the second bench and listened to all twenty-nine without moving. When they read out the sentence, which was life, in Azkaban, if he should ever be found, she wrote it down in the red notebook, with the date and the time, and closed the notebook.
+His chair was empty. They read the charges out to it, all twenty-nine, one after another, in a clerk's flat voice. The Commission, the registers, the hearings in Courtroom Ten, the cells beneath it. Evelyn sat beside Harry on the second bench and listened to all twenty-nine without moving. When they read out the sentence, which was life in Azkaban if he should ever be found, she wrote it down in the red notebook with the date and the time, and closed the notebook.
 
 Then, at the end of that day, a clerk read out a list.
 
-It was a list of names. Death Eaters who had been identified, by the Mark or by witnesses, and who had not been taken, or found, or accounted for among the dead. The clerk read them out one after another, in the same flat voice, and after each one paused, and looked up at the benches, in case anybody had anything to say.
+It was a list of names. Death Eaters who'd been identified by the Mark or by witnesses, and who hadn't been taken, or found, or accounted for among the dead. The clerk read them out one after another in the same flat voice, and after each one paused and looked up at the benches, in case anybody had anything to say.
 
 "Theodore Nott," read the clerk.
 
 He paused. He looked up.
 
-Harry stood up.
+Harry stood.
 
 "He was ours," he said. "He was a spy. For eighteen months. He fed us everything. He fought for the castle on the night of the first of May for an hour and then he went to look for his father." He stopped. "I asked him to take the Mark. It was my idea."
 
@@ -49067,33 +49067,33 @@ There was a murmur on the benches.
 
 Harry sat down.
 
-Nobody had seen Theo. Nobody had heard from him. His coin, which Harry still had the pair of, had not been warm once since twenty to nine on the first of May.
+Nobody had seen Theo. Nobody had heard from him. His coin, whose pair Harry still had, hadn't been warm once since twenty to nine on the first of May.
 
 * * *
 
-It was in June, too, that Harry gave an interview to the *Daily Prophet*.
+It was in June too that Harry gave an interview to the *Daily Prophet*.
 
-He had not meant to. He had not given an interview in his life. But the reporter was waiting for him on the steps of the Ministry visitors' entrance one evening, a pleasant young man in a good suit called Edwin Thrupp, who said he was not interested in the battle, he was sick of the battle, everybody was sick of the battle, he only wanted to know about the people. The ones who had been there. The ones nobody had heard of.
+He hadn't meant to. He'd never given an interview in his life. But the reporter was waiting for him one evening on the steps of the Ministry visitors' entrance, a pleasant young man in a good suit called Edwin Thrupp, who said he wasn't interested in the battle, he was sick of the battle, everybody was sick of the battle, he only wanted to know about the people. The ones who'd been there. The ones nobody had heard of.
 
 Harry looked at him.
 
 He looked the way he looked at everyone now. And he saw a young man with a nice open face who seemed to mean it.
 
-He would have known, before. He would have known in a second, on the steps, from across the street. He would have read him and found whatever was under the nice open face, the small cold pleased thing that Harry had found in a dozen reporters in seven years, and he would have smiled his shop smile and walked past.
+He'd have known, before. He'd have known in a second, on the steps, from across the street. He'd have read him and found whatever lay beneath the nice open face, the small cold pleased thing he'd found in a dozen reporters in seven years, and he'd have smiled his shop smile and walked past.
 
 He talked to Edwin Thrupp for forty minutes.
 
-He told him about Millicent. He told him about Neville at the door on the bridge, counting. About Lockhart's supply line and the Carrows' house-elf. About a girl nobody had ever noticed who had stood in Courtroom Ten and thrown the Commission's confiscated wands across the floor in front of her own father. He told him that the same girl had killed Severus Snape in the Shrieking Shack, to save his life.
+He told him about Millicent. He told him about Neville at the door on the bridge, counting. About Lockhart's supply line and the Carrows' house-elf. About a girl nobody had ever noticed who'd stood in Courtroom Ten and thrown the Commission's confiscated wands across the floor in front of her own father. He told him the same girl had killed Severus Snape in the Shrieking Shack to save his life.
 
-He did not think about it. He was telling him about the people nobody had heard of. She was the person nobody had ever heard of. It was the whole of what she was.
+He didn't think about it. He was telling him about the people nobody had heard of. She was the person nobody had ever heard of. It was the whole of what she was.
 
 It was on the front page the next morning.
 
-*SELWYN GIRL KILLED SNAPE: Potter Reveals Chairman's Daughter's Secret War.* There was a photograph. Nobody knew where it had come from. It was Evelyn at fifteen, at a Quidditch match, in the stands, looking at something off to one side, and it was blurred, but it was her.
+*SELWYN GIRL KILLED SNAPE: Potter Reveals Chairman's Daughter's Secret War.* There was a photograph. Nobody knew where it had come from. It was Evelyn at fifteen at a Quidditch match, in the stands, looking at something off to one side, and it was blurred, but it was her.
 
 Harry read it in the kitchen at Grimmauld Place, standing up, twice.
 
-He went to find her. She was at the table with a cup of tea and a copy of the *Prophet* folded in four, and she looked up when he came in, and he did not know what was in her face. He had never known. That was not new. What was new was that he did not know what was in anybody's, and he had just told a man on a step everything she had spent her life not being.
+He went to find her. She was at the table with a cup of tea and a copy of the *Prophet* folded in four, and she looked up when he came in, and he didn't know what was in her face. He'd never known. That wasn't new. What was new was that he didn't know what was in anybody's, and he'd just told a man on a step everything she'd spent her life not being.
 
 "I'm sorry," said Harry. "I didn't… I couldn't tell he was…"
 
@@ -49109,7 +49109,7 @@ He nodded.
 
 "A woman in Diagon Alley looked at me this morning," said Evelyn. "In Flourish and Blotts. She looked at me and she knew who I was. She looked at me for nearly a minute." She moved her cup an inch to the left. "Nobody has ever done that in my life."
 
-He did not say anything.
+He didn't answer.
 
 "It'll pass," said Evelyn. "People forget my face. It's the one thing I've always been able to rely on." She looked at the paper. "It'll take about a month, I expect. Perhaps six weeks."
 
@@ -49119,19 +49119,19 @@ It took five.
 
 He got Ron wrong in the third week of June.
 
-It was at the Burrow, on a Sunday. Ron had been very quiet all through lunch, and short with him, twice, about nothing, and when Harry asked him whether he wanted to go out and throw a Quaffle about in the orchard after, Ron had said *no* in a voice that made Mrs Weasley look up. And Harry had sat at the table with his plate in front of him and looked at Ron's face across the table and known, quite clearly, the way he had always known things, that Ron was angry with him.
+It was at the Burrow, on a Sunday. Ron had been very quiet all through lunch, and short with him twice about nothing, and when Harry asked whether he wanted to go out and throw a Quaffle about in the orchard afterwards, Ron had said *no* in a voice that made Mrs Weasley look up. And Harry had sat at the table with his plate in front of him and looked at Ron's face across the table and known, quite clearly, the way he'd always known things, that Ron was angry with him.
 
 For Fred. For the wall on the seventh floor. For bringing the war to the castle on purpose, because it was the plan.
 
-He had known it for an hour. He sat with it all through pudding.
+He'd known it for an hour. He sat with it all through pudding.
 
-Then he went and found Ron in the orchard, by the hedge, sitting on the ground with his back to a tree.
+Then he went and found Ron in the orchard by the hedge, sitting on the ground with his back against a tree.
 
 "Are you angry with me?" said Harry.
 
 Ron looked up at him.
 
-His face went through several things. Harry could not tell what any of them were. Then it settled on something that looked very much like astonishment.
+His face went through several things. Harry couldn't tell what any of them were. Then it settled on something that looked very much like astonishment.
 
 "*What?*"
 
@@ -49157,25 +49157,25 @@ Ron thought about it.
 
 "Well," he said, "you can ask me. Any time. I'll tell you." He picked a blade of grass and looked at it. "I'm not very good at it. Saying. But I'll tell you."
 
-He did. He was not very good at it. It took him a long time, sitting under the tree in the orchard with a blade of grass, and he got some of it in the wrong order, and some of it he could only say by saying something else. But he told him.
+He did. He wasn't very good at it. It took him a long time, sitting under the tree in the orchard with a blade of grass, and he got some of it in the wrong order, and some of it he could only say by saying something else. But he told him.
 
-Harry had to ask everybody now. He asked Hermione what she meant when she went quiet. He asked Mrs Weasley whether he had upset her when she cried at the stove. He asked Neville, and Luna, and McGonagall, and the girl at the till in the Tesco on the Euston Road. He asked so often that he heard himself doing it in his sleep. It was exhausting. It was like walking everywhere in a country where he had always been able to take a taxi.
+Harry had to ask everybody now. He asked Hermione what she meant when she went quiet. He asked Mrs Weasley whether he'd upset her when she cried at the stove. He asked Neville, and Luna, and McGonagall, and the girl at the till in the Tesco on the Euston Road. He asked so often he heard himself doing it in his sleep. It was exhausting. It was like walking everywhere in a country where he'd always been able to take a taxi.
 
 And people told him.
 
-That was the part he had not expected. He asked, and they stopped, and they thought, and then they told him, in words, things he had always just known, and it was not the same. It was slower and stranger and full of mistakes, and they said things they had not known they felt until he asked. And sometimes, when they had finished, they looked at him differently, as though they had been asked something nobody had ever asked them before.
+That was the part he hadn't expected. He asked, and they stopped, and thought, and then they told him in words things he'd always just known, and it wasn't the same. It was slower and stranger and full of mistakes, and they said things they hadn't known they felt until he asked. And sometimes, when they'd finished, they looked at him differently, as though they'd been asked something nobody had ever asked them before.
 
-He did not have a word for that either.
+He didn't have a word for that either.
 
 * * *
 
 The Office of Magical Registers was on Level Six of the Ministry of Magic, at the far end of a corridor behind the Floo Network Authority, past a broom cupboard and a door marked *GOBSTONES (DISCONTINUED)*, and it was the smallest office Evelyn had ever seen.
 
-It was eleven feet by nine. She measured it on the first morning. It had one window, which was enchanted to show a view of a car park in Swindon, for reasons nobody could remember. It had two desks, one large and one small, and shelves on every wall to the ceiling, and on the shelves there were registers. Births, deaths, marriages, name changes and wand registrations for every witch and wizard in Britain since 1692, bound in green cloth and numbered in white ink, eleven thousand, four hundred and six volumes, and it smelt of glue.
+It was eleven feet by nine. She measured it on the first morning. It had one window, enchanted to show a view of a car park in Swindon, for reasons nobody could remember. It had two desks, one large and one small, and shelves to the ceiling on every wall, and on the shelves were registers. Births, deaths, marriages, name changes and wand registrations for every witch and wizard in Britain since 1692, bound in green cloth and numbered in white ink, eleven thousand four hundred and six volumes, and it smelt of glue.
 
 The large desk belonged to Mr Pike.
 
-Mr Pike was eighty-one. He had been the Senior Clerk of the Office of Magical Registers since 1951, and the only clerk since 1974, when his assistant had retired to Whitby, and he had not been replaced. He was very small and very bald and very neat, and he wore a grey cardigan very like her own, and he had a pair of half-moon spectacles on a chain round his neck, and he looked at her over the top of them on the first morning, the sixth of July, when she came in with her letter of appointment.
+Mr Pike was eighty-one. He'd been Senior Clerk of the Office of Magical Registers since 1951, and the only clerk since 1974, when his assistant had retired to Whitby and not been replaced. He was very small and very bald and very neat, and he wore a grey cardigan very like her own, with a pair of half-moon spectacles on a chain round his neck, and he looked at her over the top of them on the first morning, the sixth of July, when she came in with her letter of appointment.
 
 "Selwyn," he said, reading it.
 
@@ -49185,15 +49185,15 @@ Mr Pike was eighty-one. He had been the Senior Clerk of the Office of Magical Re
 
 "Yes."
 
-"Good." He handed her the letter back. "That's your desk. Kettle's on the shelf behind the 1840s. Milk's in the drawer under the Gaunts, it keeps cold there, I've never known why. You'll start on Births, 1850 to 1860. Nobody's corrected those in a hundred years and they're a disgrace." He put his spectacles back on and looked down at his own register. "Tea at eleven. Lunch at one. I go home at five. If anybody comes in asking for anything, tell them to fill in a form."
+"Good." He handed the letter back. "That's your desk. Kettle's on the shelf behind the 1840s. Milk's in the drawer under the Gaunts, it keeps cold there, I've never known why. You'll start on Births, 1850 to 1860. Nobody's corrected those in a hundred years and they're a disgrace." He put his spectacles on and looked down at his own register. "Tea at eleven. Lunch at one. I go home at five. If anybody comes in asking for anything, tell them to fill in a form."
 
 That was all he said.
 
-He did not ask about her family. Evelyn waited for it all that morning, at her small desk, with Births 1850 open in front of her and a pot of red ink. She waited for it at eleven, when he made the tea. She waited for it at one. She had been waiting for it for five weeks, everywhere she went, from everybody, since a front page with a photograph on it. She waited for it all week.
+He didn't ask about her family. Evelyn waited for it all that morning at her small desk with Births 1850 open in front of her and a pot of red ink. She waited for it at eleven, when he made the tea. She waited for it at one. She'd been waiting for it for five weeks, everywhere she went, from everybody, since a front page with a photograph on it. She waited for it all week.
 
-He did not ask.
+He didn't ask.
 
-On the Friday, at four o'clock, she said, "Mr Pike."
+On the Friday at four o'clock she said, "Mr Pike."
 
 "Mm."
 
@@ -49215,21 +49215,21 @@ Evelyn looked at Births 1850.
 
 Then she picked up her pen and corrected the date of birth of one Ignatius Prewett, which had been entered as the thirtieth of February.
 
-She had chosen it because it was the least important job in the building. She had gone through the list of vacancies on the noticeboard on Level Two in the first week of June, all forty-seven of them, and chosen the one that nobody would ever look at, in the room that nobody would ever come to, under a man who did not care who she was.
+She'd chosen it because it was the least important job in the building. She'd gone through the list of vacancies on the noticeboard on Level Two in the first week of June, all forty-seven, and chosen the one nobody would ever look at, in the room nobody would ever come to, under a man who didn't care who she was.
 
-She noted, on the Friday evening, at five past five, after Mr Pike had gone home and she was washing the cups, that she had not thought about any of that for nearly four hours.
+She noted on the Friday evening at five past five, after Mr Pike had gone home and she was washing the cups, that she hadn't thought about any of that for nearly four hours.
 
 * * *
 
-Harry turned eighteen on the thirty-first of July, 1998, in the kitchen at Grimmauld Place, with five people.
+Harry turned eighteen on the thirty-first of July 1998, in the kitchen at Grimmauld Place, with five people.
 
-He had asked for five. He had not wanted the Burrow, or a party, or anybody from the Ministry, or any of the three hundred letters a day that had been coming since May and that Kreacher brought down in a laundry basket every morning and left on the stairs, sighing. He had wanted the kitchen, and the people who would come into it without being asked.
+He'd asked for five. He hadn't wanted the Burrow, or a party, or anybody from the Ministry, or any of the three hundred letters a day that had been coming since May, which Kreacher brought down in a laundry basket every morning and left on the stairs, sighing. He'd wanted the kitchen, and the people who'd come into it without being asked.
 
-Ron came at six, with Hermione. Neville came at a quarter past, with a plant in a pot that he said was a birthday cactus and that did not appear to be any kind of cactus at all. Luna came at half past, with a necklace of corks for Harry and one for Kreacher, who put his on, and wore it for the rest of the evening, and said nothing whatever about it.
+Ron came at six, with Hermione. Neville came at a quarter past with a plant in a pot that he said was a birthday cactus and that didn't appear to be any kind of cactus at all. Luna came at half past with a necklace of corks for Harry and one for Kreacher, who put his on and wore it for the rest of the evening and said nothing whatever about it.
 
-Evelyn came down from her room at seven, as she had last year, with a parcel wrapped in brown paper.
+Evelyn came down from her room at seven, as she had the year before, with a parcel wrapped in brown paper.
 
-It was a book. It was a second-hand copy of *The Hound of the Baskervilles*, from a shop on Charing Cross Road, with somebody else's name in the front in pencil and a tea stain on page forty.
+It was a book. A second-hand copy of *The Hound of the Baskervilles* from a shop on Charing Cross Road, with somebody else's name in the front in pencil and a tea stain on page forty.
 
 "It's about a man everybody thinks is under a curse," she said. "It turns out to be somebody with a dog and a tin of phosphorus." She handed it to him. "Happy birthday, Potter."
 
@@ -49243,11 +49243,11 @@ It was a book. It was a second-hand copy of *The Hound of the Baskervilles*, fro
 
 He looked at Hermione.
 
-Hermione was at the stove, in an apron, with flour on her face and a card propped up against the sugar jar in front of her, and she looked at him, and he did not know what was in her face, and then she said it, which was the thing people did now.
+Hermione was at the stove in an apron with flour on her face and a card propped against the sugar jar in front of her, and she looked at him, and he didn't know what was in her face, and then she said it, which was what people did now.
 
 "I found it," she said. "In the drawer. The one by the sink, with the string and the candle ends. It was at the back." She held up the card. It was an old index card, soft at the corners, covered in Sirius's big untidy handwriting in blue ink, with brown splashes on it. "It's his. It's the one he made last year. I thought…" She stopped. "I thought somebody should make it."
 
-Nobody said anything for a moment.
+The kitchen went quiet.
 
 "Right," said Ron. "Brilliant. It was disgusting."
 
@@ -49257,23 +49257,23 @@ Nobody said anything for a moment.
 
 "I *know*, Ron. I'm following it exactly."
 
-She followed it exactly. It took an hour and forty minutes, and at one point the kitchen filled with smoke and Kreacher came in with his cork necklace on and opened the window without being asked, muttering, and at another point Neville's cactus that was not a cactus put out a long green tendril and tried to take the egg whisk. And at a quarter to nine Hermione took it out of the oven and stood back from it, and they all looked at it.
+She followed it exactly. It took an hour and forty minutes, and at one point the kitchen filled with smoke and Kreacher came in with his cork necklace on and opened the window unasked, muttering, and at another point Neville's cactus that wasn't a cactus put out a long green tendril and tried to take the egg whisk. And at a quarter to nine Hermione took it out of the oven and stood back, and they all looked at it.
 
-It was lopsided. It leaned to one side like a house on a hill. It was black round the edges and it had sunk in the middle into a sort of crater, and when Hermione iced it the icing went a strange pale grey, and she wrote on it, very carefully, with a piping bag, exactly as the card said, *HAPY BIRTHDY HARRY*, with the spelling exactly as Sirius had spelled it on the card, because she had decided, she said, that it was part of the recipe.
+It was lopsided. It leaned to one side like a house on a hill. It was black round the edges and had sunk in the middle into a sort of crater, and when Hermione iced it the icing went a strange pale grey, and she wrote on it very carefully with a piping bag, exactly as the card said, *HAPY BIRTHDY HARRY*, the spelling exactly as Sirius had spelled it on the card, because she'd decided, she said, that it was part of the recipe.
 
 They put eighteen candles in it. The candles leaned into the crater.
 
-It was just as terrible as it had been last year. It was, if anything, slightly worse, because Hermione had been more exact. Ron ate two pieces and said so after each one. Luna said it tasted like a very old church, and seemed pleased. Neville said nothing at all, very kindly, and fed some of his to the cactus. Evelyn ate one slice from the least black edge, and rated it, when Ron asked her to, at three out of ten, with the three entirely for effort.
+It was just as terrible as it had been last year. If anything it was slightly worse, because Hermione had been more exact. Ron ate two pieces and said so after each. Luna said it tasted like a very old church, and seemed pleased. Neville said nothing at all, very kindly, and fed some of his to the cactus. Evelyn ate one slice from the least black edge and rated it, when Ron asked her to, three out of ten, the three entirely for effort.
 
 Harry ate all of his.
 
-He did not know why. He sat at the head of the long kitchen table in the house that was his now, at eighteen, with five people round him whose faces he could not read, and a terrible lopsided cake, and he ate all of it, and when Hermione asked him whether he was all right, he thought about it honestly, and said, "Yes. I think so. I'll tell you if I'm not."
+He didn't know why. He sat at the head of the long kitchen table in the house that was his now, at eighteen, with five people round him whose faces he couldn't read and a terrible lopsided cake, and he ate all of it, and when Hermione asked him whether he was all right, he thought about it honestly and said, "Yes. I think so. I'll tell you if I'm not."
 
 Afterwards, washing up, Evelyn picked up the recipe card from beside the sugar jar to put it back in the drawer.
 
 She stopped.
 
-She turned it over and looked at the back of it for a moment, and then she put it down on the table in front of him, face down, without a word, and went back to the sink.
+She turned it over and looked at the back for a moment, and then she laid it on the table in front of him, face down, without a word, and went back to the sink.
 
 There was something written on the back. It was in the same big untidy blue handwriting, but smaller, and the ink was a little different, as though it had been added later, on another day.
 
