@@ -47647,15 +47647,15 @@ And Evelyn, last, closest, a pace behind his shoulder, where she'd always been.
 
 It was nine hundred and twelve paces from the bottom of the castle steps to the first trees of the Forest.
 
-Evelyn counted them. Harry knew she was counting, because she was a pace behind his shoulder and her mind was open an inch, and he could feel the numbers going through her, steady as a clock, under everything else. He did not count. He walked down the long slope of the lawn in the dark with the Cloak over his arm and the wet grass soaking through his trainers and the lights at the bottom getting bigger, and he thought about nothing very much.
+Evelyn counted them. Harry knew she was counting, because she was a pace behind his shoulder and her mind was open an inch, and he could feel the numbers going through her, steady as a clock, beneath everything else. He didn't count. He walked down the long slope of the lawn in the dark with the Cloak over his arm and the wet grass soaking through his trainers and the lights at the bottom growing bigger, and he thought about nothing very much.
 
-He thought about Hagrid's hut, which they passed on the left, with its door open and no light inside.
+He thought about Hagrid's hut, which they passed on the left, its door open and no light inside.
 
 He thought about the pumpkin patch.
 
-He thought about a boy of eleven coming down this lawn for the first time, behind a man the size of a wardrobe, in a coat that was too big for him, and reading the man's gladness the whole way, warm and loud and plain, and not knowing yet that it would ever stop.
+He thought about a boy of eleven coming down this lawn for the first time behind a man the size of a wardrobe, in a coat too big for him, reading the man's gladness the whole way, warm and loud and plain, and not knowing yet that it would ever stop.
 
-"Harry," said Neville, behind him.
+"Harry," said Neville behind him.
 
 "Yes."
 
@@ -47667,7 +47667,7 @@ He thought about a boy of eleven coming down this lawn for the first time, behin
 
 "I don't know."
 
-"Right," said Neville. He said it the way he had said *I counted*, at the top of a staircase, with his face wet. "Right."
+"Right," said Neville. He said it the way he'd said *I counted* at the top of a staircase with his face wet. "Right."
 
 "Brilliant plan," said Ron. "Love it. Really thorough."
 
@@ -47677,27 +47677,27 @@ He thought about a boy of eleven coming down this lawn for the first time, behin
 
 "You didn't, though," said Millicent.
 
-Ron opened his mouth and shut it again. Harry felt him, a pace behind on the left, frightened and grieving and, for one second, very nearly amused, and was more grateful for that second than he would have known how to say.
+Ron opened his mouth and shut it again. Harry felt him a pace behind on the left, frightened and grieving and, for one second, very nearly amused, and was more grateful for that second than he'd have known how to say.
 
 At six hundred and forty, somebody came out of the dark on the right.
 
-Millicent had her wand up before Harry turned. Ron had his up a second later. Neville's came up so fast that he nearly dropped it.
+Millicent had her wand up before Harry turned. Ron's came up a second later. Neville's came up so fast he nearly dropped it.
 
 "Don't," said Draco Malfoy.
 
-He came up the slope towards them, quite slowly, with his hands a little away from his sides and his mother's wand in one of them, pointing at the grass. His face was white. There was dust on his robes and a cut on the back of one hand, and he had come, Harry could tell, from the castle, the long way, round the side of the greenhouses, in the dark, on his own.
+He came up the slope towards them quite slowly, his hands a little away from his sides and his mother's wand in one of them, pointing at the grass. His face was white. There was dust on his robes and a cut on the back of one hand, and he'd come, Harry could tell, from the castle, the long way, round the side of the greenhouses, in the dark, alone.
 
 He stopped a yard away.
 
-Nobody said anything.
+No one spoke.
 
-Harry read him. He did it without meaning to, as he had done it for seven years, every time Draco came into a room. And the knot was there, exactly as it had been on the third stair and in a drawing room and on a tower, four or five things wound so tightly round each other that Harry could not find where any of them began.
+Harry read him. He did it without meaning to, as he'd done it for seven years every time Draco came into a room. And the knot was there, exactly as it had been on the third stair and in a drawing room and on a tower, four or five things wound so tightly round each other that Harry couldn't find where any of them began.
 
-He could not tell why Draco had come.
+He couldn't tell why Draco had come.
 
-He looked for it. He looked for it carefully, the way you look for a word in a language you only half know, and it was not there. There was fear, and there was his mother, and there was the tower, and there was a bathroom full of water, and there was a drawing room, and none of it was a reason. None of it pointed anywhere.
+He looked for it. He looked carefully, the way you look for a word in a language you only half know, and it wasn't there. There was fear, and his mother, and the tower, and a bathroom full of water, and a drawing room, and none of it was a reason. None of it pointed anywhere.
 
-Draco looked back at him. He knew Harry was reading him. He had always known.
+Draco looked back at him. He knew Harry was reading him. He always had.
 
 "Don't ask," said Draco.
 
@@ -47709,21 +47709,21 @@ He fell in on the left, behind Ron, who looked at him for a long time and then, 
 
 Harry walked on.
 
-At nine hundred and twelve, the grass ended, and the trees began.
+At nine hundred and twelve the grass ended and the trees began.
 
 * * *
 
-There were two of them waiting where the trees began. Yaxley, whom Harry had last seen at a desk in the Ministry, and a heavy-shouldered man with a scarred face whom Harry did not know. They were holding their wands up, lit, and they were glad.
+Two of them were waiting where the trees began. Yaxley, whom Harry had last seen at a desk in the Ministry, and a heavy-shouldered man with a scarred face whom Harry didn't know. They held their wands up, lit, and they were glad.
 
-Harry read the gladness and did not mind it. It was useful. Glad people did not look very hard.
+Harry read the gladness and didn't mind it. It was useful. Glad people didn't look very hard.
 
 He let them see one boy.
 
-It was the easiest illusion he had made all night. It was two minds, both glad, both looking for exactly what they saw: a thin boy in a dirty coat carrying the Cloak, alone, come to give himself up. He did not even have to make the others invisible. He only had to make them unimportant, six shapes in the dark that did not matter, the way you do not notice the furniture in a room you have been told to search for a person. Yaxley looked straight through Evelyn and saw a tree.
+It was the easiest illusion he'd made all night. Two minds, both glad, both looking for exactly what they saw. A thin boy in a dirty coat carrying the Cloak, alone, come to give himself up. He didn't even have to make the others invisible. He only had to make them unimportant, six shapes in the dark that didn't matter, the way you don't notice the furniture in a room you've been told to search for a person. Yaxley looked straight through Evelyn and saw a tree.
 
 "Potter," said Yaxley.
 
-His voice was pleased. He was a Legilimens, the best in the Commission, and he reached for Harry's mind with it, quite lazily, the way you put your hand out for a banister you know is there.
+His voice was pleased. He was a Legilimens, the best in the Commission, and he reached for Harry's mind with it quite lazily, the way you put out your hand for a banister you know is there.
 
 Harry let him find a frightened boy.
 
@@ -47733,37 +47733,37 @@ Harry let him find a frightened boy.
 
 Harry walked in front of him.
 
-The others came behind, six unimportant shapes in the dark, between the trees.
+The others came behind, six unimportant shapes in the dark between the trees.
 
 * * *
 
-They walked for perhaps ten minutes into the Forest, along a path that was not a path, between oaks and beeches and great old dark firs, downhill, towards the sound of a stream. And Harry felt it before he saw anything.
+They walked perhaps ten minutes into the Forest, along a path that wasn't a path, between oaks and beeches and great old dark firs, downhill, towards the sound of a stream. And Harry felt it before he saw anything.
 
 The Forest was leaning.
 
-It was the oddest thing he had ever felt. He did not feel it the way he felt people. He felt it through people: through Yaxley behind him and the scarred man beside Yaxley, and through every Death Eater in the clearing ahead, three hundred of them, more. They were all leaning the same way. Their wills were leaning, the way grass leans in a wind, all in one direction, towards one point, and it was less a feeling than a pull. It was as though the ground had tilted very slightly, everywhere, and everything that could move was beginning, without noticing, to slide.
+It was the oddest thing he'd ever felt. He didn't feel it the way he felt people. He felt it through people. Through Yaxley behind him and the scarred man beside Yaxley, and through every Death Eater in the clearing ahead, three hundred of them, more. They were all leaning the same way. Their wills were leaning, the way grass leans in a wind, all in one direction, towards one point, and it was less a feeling than a pull. It was as though the ground had tilted very slightly everywhere, and everything that could move had begun, without noticing, to slide.
 
-He had felt it once before. On a lawn, on a summer night, under a tower, with a thousand children at the windows.
+He'd felt it once before. On a lawn, on a summer night, beneath a tower, with a thousand children at the windows.
 
 *Sovereign*, thought Harry.
 
-It was not open. Not all the way. It was open the way a door is open when somebody has their hand on it, a crack, a promise. But it was enough that the trees on either side of the path had begun, very slowly, to bend in towards the clearing. The branches on the near side of every trunk were longer than the branches on the far side. The ferns all lay one way. Even the stream, when they crossed it on stepping stones, was running at a slant, against its own bank.
+It wasn't open. Not all the way. It was open the way a door is open when somebody has a hand on it, a crack, a promise. But it was enough that the trees either side of the path had begun, very slowly, to bend in towards the clearing. The branches on the near side of every trunk were longer than those on the far side. The ferns all lay one way. Even the stream, when they crossed it on stepping stones, was running at a slant against its own bank.
 
 Ron, behind him, made a very small sound.
 
-Harry did not look back. He could feel Ron, and Hermione, and Neville, and Millicent, and Draco. He could feel all of them beginning to lean.
+Harry didn't look back. He could feel Ron, and Hermione, and Neville, and Millicent, and Draco. He could feel all of them beginning to lean.
 
-And he could feel Evelyn, a pace behind his shoulder, not leaning at all.
+And he could feel Evelyn a pace behind his shoulder, not leaning at all.
 
 * * *
 
-They stopped short of the clearing, in the trees, while Yaxley went ahead.
+They stopped short of the clearing, in the trees, whilst Yaxley went ahead.
 
-Harry stood still and let him go. He let the scarred man stand beside him with a wand at his ribs. He reached into the scarred man, very lightly, and showed him a boy standing quite still and frightened, and the man was satisfied with it and looked away into the clearing.
+Harry stood still and let him go. He let the scarred man stand beside him with a wand at his ribs. He reached into the scarred man very lightly and showed him a boy standing quite still and frightened, and the man was satisfied and looked away into the clearing.
 
 Evelyn was at his shoulder.
 
-He turned his head, an inch, and spoke without moving his lips, the way they had spoken in the back of Potions for six years.
+He turned his head an inch and spoke without moving his lips, the way they'd spoken at the back of Potions for six years.
 
 "If you hold Dead Calm round me, nothing can touch me," he said. "But you won't feel anything. You won't be able to call."
 
@@ -47771,35 +47771,35 @@ He turned his head, an inch, and spoke without moving his lips, the way they had
 
 "Yes."
 
-She did not answer for a moment. He felt her think about it. He felt it go through her very fast, the whole sum, every number, the six of them and the three hundred and the time it would take and the place he would be, so far in that nobody could follow. He felt her come to the end of it.
+She didn't answer for a moment. He felt her think about it. He felt it go through her very fast, the whole sum, every number, the six of them and the three hundred and the time it would take and the place he'd be, so far in that nobody could follow. He felt her come to the end of it.
 
 "I'll call," said Evelyn. "They'll hold."
 
-Behind them, in the dark, Millicent said, very quietly, "Course we will."
+Behind them in the dark, Millicent said very quietly, "Course we will."
 
 * * *
 
-The clearing was large and round and full of people, and there was a fire in the middle of it, and Voldemort was standing by the fire.
+The clearing was large and round and full of people, with a fire in the middle, and Voldemort was standing by the fire.
 
-He was not doing anything. He was standing with his back to the flames and his hands folded in front of him, the way a man stands at the end of a long table waiting for his guests to finish their soup. He was tall and thin and very pale, in plain black, and he was holding a wand, quite loosely, and the wand was long and pale and had a small dark mark halfway down it like a burn. There was a ring on his right hand. A heavy gold ring, with a black stone in it, on the second finger.
+He wasn't doing anything. He stood with his back to the flames and his hands folded in front of him, the way a man stands at the end of a long table waiting for his guests to finish their soup. He was tall and thin and very pale, in plain black, holding a wand quite loosely, and the wand was long and pale with a small dark mark halfway down it like a burn. There was a ring on his right hand. A heavy gold ring with a black stone, on the second finger.
 
 Two of three, thought Harry.
 
-The Death Eaters were all round the clearing, under the leaning trees, three and four deep. Harry did not count them. He read them, all at once, and they were glad, and hungry, and very frightened, and under the fear, in every one of them, there was the lean. They were all leaning towards the man by the fire, the way iron filings lean towards a magnet, and most of them did not know it.
+The Death Eaters stood all round the clearing beneath the leaning trees, three and four deep. Harry didn't count them. He read them all at once, and they were glad, and hungry, and very frightened, and beneath the fear, in every one of them, was the lean. They were all leaning towards the man by the fire, the way iron filings lean towards a magnet, and most of them didn't know it.
 
-Bellatrix was at the front, near the fire, so glad she was almost singing. Lucius Malfoy was at the back, in the shadow of an oak, grey and wandless and ashamed. Beside him, very straight, with her hands together in front of her and no wand at all, stood Narcissa.
+Bellatrix was at the front near the fire, so glad she was almost singing. Lucius Malfoy was at the back in the shadow of an oak, grey and wandless and ashamed. Beside him, very straight, with her hands together in front of her and no wand at all, stood Narcissa.
 
-She was afraid. It was all for one person. And the person was not in the clearing, and she did not know where he was.
+She was afraid. It was all for one person. And the person wasn't in the clearing, and she didn't know where he was.
 
-Harry did not look at her for long.
+Harry didn't look at her for long.
 
 He looked at Voldemort.
 
-He reached for him, once, carefully, the way you put your hand on a door to see whether it is hot. And it was the mountain again. A closed mind so large and so still and so certain of itself that his reaching went up against it and stopped, and did not even leave a mark.
+He reached for him once, carefully, the way you put your hand on a door to see whether it's hot. And it was the mountain again. A closed mind so large and so still and so certain of itself that his reaching went up against it and stopped, and didn't even leave a mark.
 
-He had known it would be. He had known since a lawn in summer. You could not deceive a closed mind. Snape had been the only person alive who knew that better than Harry did.
+He'd known it would be. He'd known since a lawn in summer. You couldn't deceive a closed mind. Snape had been the only person alive who knew that better than Harry did.
 
-He would have to wait for it to open.
+He'd have to wait for it to open.
 
 Yaxley came back across the clearing.
 
@@ -47807,29 +47807,29 @@ Yaxley came back across the clearing.
 
 Voldemort turned his head.
 
-He looked at the trees, at the place where a boy stood very still with a wand at his ribs and a silver-grey cloak over his arm. His eyes were red. They were not angry. They were interested, very interested, in the way that a man is interested in a picture he has bought and has not yet hung.
+He looked at the trees, at the place where a boy stood very still with a wand at his ribs and a silver-grey cloak over his arm. His eyes were red. They weren't angry. They were interested, very interested, the way a man is interested in a picture he's bought and hasn't yet hung.
 
 "Harry Potter," said Voldemort. "Come here."
 
 * * *
 
-He did not go.
+He didn't go.
 
-He stood where he was, under the oaks, and he did the thing he had been taught to do on a lawn at the Burrow, in a field, by a man in a sugared-apricot cloak who had made faces at the hippogriffs.
+He stood where he was beneath the oaks and did what he'd been taught to do on a lawn at the Burrow, in a field, by a man in a sugared-apricot cloak who'd made faces at the hippogriffs.
 
 *Not one perfect lie*, Lockhart had said. *A hundred bad ones. Fast. For minds that aren't thinking.*
 
-There were three hundred minds in the clearing, and not one of them was thinking. They were leaning. They were glad and frightened and leaning, and a mind that is leaning is a mind that is already going somewhere it has not chosen. You did not have to push it. You only had to show it a direction.
+There were three hundred minds in the clearing, and not one of them was thinking. They were leaning. They were glad and frightened and leaning, and a mind that's leaning is a mind already going somewhere it hasn't chosen. You didn't have to push it. You only had to show it a direction.
 
 He showed them.
 
-He did not build anything. He did not have time to build. He threw it, all at once, like a man throwing a bucket of water across a floor, a hundred bad lies, two hundred, in every direction.
+He didn't build anything. He hadn't time to build. He threw it, all at once, like a man flinging a bucket of water across a floor, a hundred bad lies, two hundred, in every direction.
 
-He gave Bellatrix her master's voice, high and cold and urgent, in her ear, from the direction of the castle. *The castle. They are breaking out. Go. Now.*
+He gave Bellatrix her master's voice in her ear, high and cold and urgent, from the direction of the castle. *The castle. They are breaking out. Go. Now.*
 
-He gave the twenty men nearest the path the sound of Aurors in the trees behind them, a great many Aurors, coming fast, and a voice he had heard once at a desk in the Atrium saying *surround them*.
+He gave the twenty men nearest the path the sound of Aurors in the trees behind them, a great many Aurors coming fast, and a voice he'd once heard at a desk in the Atrium saying *surround them*.
 
-He gave the men on the far side of the clearing a boy. A thin boy in a dirty coat, running away from them into the Forest with a silver-grey cloak streaming behind him, and then another boy, running the other way, and another, and another, fifty of them, a hundred, Harry Potter running in every direction at once between the leaning trees, all of them carrying the Cloak.
+He gave the men on the far side of the clearing a boy. A thin boy in a dirty coat running away from them into the Forest with a silver-grey cloak streaming behind him, and then another boy running the other way, and another, and another, fifty of them, a hundred, Harry Potter running in every direction at once between the leaning trees, all carrying the Cloak.
 
 They were very bad. They had holes in them. One of the running boys had no feet. One of the voices said *the castle* in a slightly wrong accent. A cleverer man, standing still, would have seen through any of it.
 
@@ -47837,7 +47837,7 @@ Nobody was standing still.
 
 They went.
 
-They went all at once, the way birds go off a field, in every direction. Bellatrix went first, towards the castle, shrieking for the others to follow. The men by the path turned on the Aurors that were not there and ran into the trees after them, firing. The men on the far side went after the boys. There was shouting and the crack of Apparition and the noise of three hundred people going through a forest in the dark, and it went outwards from the clearing like a wave going out from a stone dropped in a pond.
+They went all at once, the way birds go off a field, in every direction. Bellatrix went first, towards the castle, shrieking for the others to follow. The men by the path turned on Aurors who weren't there and ran into the trees after them, firing. The men on the far side went after the boys. There was shouting and the crack of Apparition and the noise of three hundred people crashing through a forest in the dark, and it spread outwards from the clearing like a ring from a stone dropped in a pond.
 
 Yaxley turned towards the castle with his wand up and his mouth open.
 
@@ -47845,29 +47845,29 @@ The scarred man let go of Harry's ribs and ran.
 
 And as they went, the lean went with them.
 
-Harry felt it. He felt Sovereign thin. Every mind that went out of the clearing was a mind that was not leaning any more, and it was as though, one by one, very fast, somebody was taking the weights off one side of a pair of scales. The trees round the clearing began, slowly, to straighten. The ferns lifted. The stream went back to its bank.
+Harry felt it. He felt Sovereign thin. Every mind that left the clearing was a mind no longer leaning, and it was as though, one by one, very fast, somebody were taking the weights off one side of a pair of scales. The trees round the clearing began slowly to straighten. The ferns lifted. The stream went back to its bank.
 
 "*Stop*," said Voldemort.
 
-He did not shout it. He said it quite quietly, and Harry felt it go out of him like a blow, into the dark, after them, three hundred wills being told what to do.
+He didn't shout it. He said it quite quietly, and Harry felt it go out of him like a blow into the dark after them, three hundred wills being told what to do.
 
-But he could not move.
+But he couldn't move.
 
-He could not leave the centre. Harry had known it for two years, since a lawn in summer, since watching him stand in the middle of a thousand children's terror like a man standing in a river. While Sovereign was open, he could not move from its heart. And he could not command what he could not see, and he could not see what Harry had shown them. He could only see that they were running.
+He couldn't leave the centre. Harry had known it for two years, since a lawn in summer, since watching him stand in the middle of a thousand children's terror like a man standing in a river. Whilst Sovereign was open, he couldn't move from its heart. And he couldn't command what he couldn't see, and he couldn't see what Harry had shown them. He could only see that they were running.
 
 Lucius Malfoy ran with the rest. Harry let him.
 
-Narcissa did not run.
+Narcissa didn't run.
 
-She stood under the oak where she had been, very straight, with her hands together, and Harry had not given her anything, because he had not seen any need to. She looked round the clearing at the trees and the empty ground and the fire. She looked at the place where Harry stood. And then she turned, quite slowly, and walked away into the Forest, not after anybody, simply away.
+She stood under the oak where she'd been, very straight, hands together, and Harry hadn't given her anything, because he hadn't seen any need. She looked round the clearing at the trees and the empty ground and the fire. She looked at the place where Harry stood. And then she turned, quite slowly, and walked away into the Forest, not after anybody, simply away.
 
-He did not know where she was going.
+He didn't know where she was going.
 
-He did not have time to find out.
+He hadn't time to find out.
 
 The clearing was empty.
 
-It was empty except for a fire, and a tall thin man standing beside it with a pale wand in his hand and a ring on his finger, and a boy under the oaks, holding a cloak. And the dark, all round, full of shouting, getting further away.
+It was empty except for a fire, and a tall thin man beside it with a pale wand in his hand and a ring on his finger, and a boy beneath the oaks holding a cloak. And the dark all round, full of shouting, getting further away.
 
 Behind Harry, in the trees, six people stood very still, and nobody was looking at them at all.
 
@@ -47875,7 +47875,7 @@ Behind Harry, in the trees, six people stood very still, and nobody was looking 
 
 "Clever," said Voldemort.
 
-He said it quite softly. He was looking at Harry across the empty clearing, and Harry read nothing, and knew from his face that he was very angry, and that the anger was not the top of it.
+He said it quite softly. He was looking at Harry across the empty clearing, and Harry read nothing, and knew from his face that he was very angry, and that the anger wasn't the top of it.
 
 "Lockhart," said Voldemort. "That was Lockhart. My people told me of it. A wedding, and a great many hippogriffs." He tilted his head. "You learned from the fool."
 
@@ -47885,17 +47885,17 @@ He said it quite softly. He was looking at Harry across the empty clearing, and 
 
 "It was a cloak," said Harry. "And he held it."
 
-Voldemort looked at him for a long moment. Then he smiled. It was a very small smile, and it was the most courteous thing Harry had ever seen on a face, and it did not reach anywhere.
+Voldemort looked at him for a long moment. Then he smiled. It was a very small smile, the most courteous thing Harry had ever seen on a face, and it didn't reach anywhere.
 
 "I could kill you from here," he said. "You know that. This wand would do it without my lifting it. It has done finer work than you."
 
 "I know."
 
-"And yet I have not." The red eyes did not move. "Do you know why?"
+"And yet I have not." The red eyes didn't move. "Do you know why?"
 
 "Because you don't know if it's the real one," said Harry.
 
-Voldemort did not answer.
+Voldemort didn't answer.
 
 "You've been asking for it for seven years," said Harry. "You said so. You asked Grindelwald, and he told you about the stone instead, and you killed him anyway." He watched the red eyes. "You've never seen it. Not once. Nobody's ever shown it to you."
 
@@ -47907,17 +47907,17 @@ Voldemort did not answer.
 
 "He didn't call it anything," said Harry. "He was dead."
 
-He held up his arm, with the Cloak over it. In the firelight it was silver and grey and moving, like water, and the end of his arm was not there.
+He held up his arm with the Cloak over it. In the firelight it was silver and grey and moving like water, and the end of his arm wasn't there.
 
-"I make things people want to see," said Harry. "You know I do. You saw the lawn. You've read the reports from Hogsmeade. You don't know if this is the Cloak, or if it's a coat I've made you see as the Cloak, and the real one's in a drawer in Leeds." He lowered his arm. "If you kill me, and it's not the real one, you'll never find it. Nobody else knows where it is."
+"I make things people want to see," said Harry. "You know I do. You saw the lawn. You've read the reports from Hogsmeade. You don't know if this is the Cloak, or a coat I've made you see as the Cloak, and the real one's in a drawer in Leeds." He lowered his arm. "If you kill me, and it's not the real one, you'll never find it. Nobody else knows where it is."
 
-It was a lie. It was a good one. It was the best one he had ever told, because it was true in every part except the one that mattered.
+It was a lie. It was a good one. It was the best he'd ever told, because it was true in every part except the one that mattered.
 
 Voldemort looked at him.
 
 "Then I shall look," said Voldemort.
 
-And he raised the pale wand, quite slowly, and pointed it at Harry's face, and said, very softly, the one word Harry had been waiting all night to hear.
+And he raised the pale wand, quite slowly, and pointed it at Harry's face, and said very softly the one word Harry had been waiting all night to hear.
 
 "*Legilimens*."
 
@@ -47925,7 +47925,7 @@ And he raised the pale wand, quite slowly, and pointed it at Harry's face, and s
 
 The mountain opened.
 
-He felt it open. It was the most enormous thing he had ever felt, a closed mind the size of a range of hills opening a door in its side and reaching out, through the door, very fast and very hard, towards him. It came the way it had come through his scar for fifteen years, in dreams and in fevers and on a summer night in a room full of glass. It came the way it had come into Grindelwald in a cell at the top of a tower, through a wand a foot from his face. It was looking for the Cloak. It was looking for the drawer in Leeds. It was going to tear through every room in Harry's head to find it, and it did not care what it broke.
+He felt it open. It was the most enormous thing he'd ever felt, a closed mind the size of a range of hills opening a door in its side and reaching out through the door, very fast and very hard, towards him. It came the way it had come through his scar for fifteen years, in dreams and fevers and on a summer night in a room full of glass. It came the way it had come into Grindelwald in a cell at the top of a tower, through a wand a foot from his face. It was looking for the Cloak. It was looking for the drawer in Leeds. It was going to tear through every room in Harry's head to find it, and it didn't care what it broke.
 
 It was open.
 
@@ -47933,61 +47933,61 @@ For a second, coming through the door, it was a mind with nothing round it. One 
 
 Harry went through the door the other way.
 
-He did not throw anything. He had thrown everything he had at three hundred people a minute ago, and there was nothing left in his hands, and he did not need it. He went in, along the line of the reaching, the way you walk back along a rope somebody has thrown you, and he went in with the wand he had carried for seven years, holly and phoenix feather, raised in his hand, and he did not stop at the door.
+He didn't throw anything. He'd thrown everything he had at three hundred people a minute ago, and there was nothing left in his hands, and he didn't need it. He went in along the line of the reaching, the way you walk back along a rope somebody's thrown you, and he went in with the wand he'd carried for seven years, holly and phoenix feather, raised in his hand, and he didn't stop at the door.
 
 He opened it.
 
-He did not know what to call it. Afterwards, when people asked, he would say *the Pinnacle*, because that was the word in the books, and because it was easier. But he did not think of it as a word. He thought of it, for the rest of his life, as the moment when he stopped showing someone a thing and started telling the world what it was.
+He didn't know what to call it. Afterwards, when people asked, he'd say *the Pinnacle*, because that was the word in the books, and because it was easier. But he didn't think of it as a word. He thought of it for the rest of his life as the moment he stopped showing someone a thing and started telling the world what it was.
 
 The clearing went.
 
-It did not fade. It did not dissolve, or shimmer, or any of the things that illusions did in stories. It simply stopped being true. The fire was not there, and the trees were not there, and the dark was not there, and it had never been there, and something else had always been there instead.
+It didn't fade. It didn't dissolve, or shimmer, or any of the things illusions did in stories. It simply stopped being true. The fire wasn't there, and the trees weren't there, and the dark wasn't there, and it had never been there, and something else had always been there instead.
 
 What had always been there was this.
 
 * * *
 
-Lord Voldemort stood in a clearing in the Forbidden Forest, a little after half past twelve, and looked down at the body of Harry Potter.
+Lord Voldemort stood in a clearing in the Forbidden Forest a little after half past twelve and looked down at the body of Harry Potter.
 
-It lay on its back on the trampled ferns at his feet, with its eyes open and its glasses knocked sideways and its mouth a little open, and one hand flung out, palm up, towards the fire. The Cloak was beside it. It had fallen from the boy's arm when the green light took him, and it lay on the ferns in a little silver heap, moving very slightly in the heat from the fire, like water.
+It lay on its back on the trampled ferns at his feet, eyes open, glasses knocked sideways, mouth a little open, one hand flung out palm up towards the fire. The Cloak was beside it. It had fallen from the boy's arm when the green light took him, and it lay on the ferns in a little silver heap, stirring very slightly in the heat from the fire, like water.
 
-He had done it with a word. He had not even lifted the wand.
+He'd done it with a word. He hadn't even lifted the wand.
 
-He bent, and picked it up.
+He bent and picked it up.
 
 Harry built it.
 
-That was the strange thing. He was there, inside it, as close as his own skin, and he was building it, and he was also lying dead on the ferns at Voldemort's feet with his eyes open, and he was also the ferns, and the fire, and the Cloak, and the cool weight of it in Voldemort's long white hand. He was everything in it. He was the author. There was nowhere in the whole of it that he was not.
+That was the strange thing. He was there, inside it, as close as his own skin, and he was building it, and he was also lying dead on the ferns at Voldemort's feet with his eyes open, and he was also the ferns, and the fire, and the Cloak, and the cool weight of it in Voldemort's long white hand. He was everything in it. He was the author. There was nowhere in the whole of it that he wasn't.
 
 And he knew what to build, because he knew the man.
 
-He had known him for a long time. He had known him at sixteen, in a diary, in a bathroom, on long nights in a dormitory with a quill. He had felt what was under the charm and the patience and the loneliness, the thing that came up, every time Harry talked about what he could feel, quick and sharp and bitter, like a dog snapping at a hand. Envy. Tom had always known what people wanted. He had never once known what they felt. And Harry had felt him want it.
+He'd known him a long time. He'd known him at sixteen, in a diary, in a bathroom, on long nights in a dormitory with a quill. He'd felt what lay beneath the charm and the patience and the loneliness, the thing that came up every time Harry talked about what he could feel, quick and sharp and bitter, like a dog snapping at a hand. Envy. Tom had always known what people wanted. He'd never once known what they felt. And Harry had felt him want it.
 
-And he had known him for fifteen years before that, without knowing he knew. A fragment, a cold second presence, sitting very quietly at the back of Harry's own head since a night in Godric's Hollow, feeling everything Harry felt and wanting all of it. He had lived with it. He had grown up with it, the way you grow up with a noise in a house that you stop hearing. And on a night at the Veil it had been torn out of him, and it had gone home, and it had taken fifteen years of Harry with it, and it had come back into this man, and this man had never once looked at what it brought.
+And he'd known him for fifteen years before that without knowing he knew. A fragment, a cold second presence sitting very quietly at the back of Harry's own head since a night in Godric's Hollow, feeling everything Harry felt and wanting all of it. He'd lived with it. He'd grown up with it, the way you grow up with a noise in a house that you stop hearing. And on a night at the Veil it had been torn out of him, and it had gone home, taking fifteen years of Harry with it, and it had come back into this man, and this man had never once looked at what it brought.
 
 Harry had.
 
-He knew what Tom wanted. He did not have to guess. He had felt it from the inside.
+He knew what Tom wanted. He didn't have to guess. He'd felt it from the inside.
 
 He gave it to him.
 
 * * *
 
-The Cloak was light. It was lighter than anything Voldemort had ever held. He held it in one hand, and the Elder Wand in the other, and the ring was on his finger, and he stood in the clearing by the fire and felt the three of them, all at once, for the first time.
+The Cloak was light. It was lighter than anything Voldemort had ever held. He held it in one hand and the Elder Wand in the other, and the ring was on his finger, and he stood in the clearing by the fire and felt the three of them, all at once, for the first time.
 
 He felt them meet.
 
-It went through him like warmth. Harry made it go through him like warmth, slowly, from the hand that held the Cloak up the arm and into the chest and out to the ends of him, the way warmth goes through a man who has been cold for seventy years and has not known it. He made it feel like the end of something. Like a door shutting behind him on a winter night, with the fire lit on the other side.
+It went through him like warmth. Harry made it go through him like warmth, slowly, from the hand that held the Cloak up the arm and into the chest and out to the ends of him, the way warmth goes through a man who's been cold for seventy years without knowing it. He made it feel like the end of something. Like a door shutting behind him on a winter night, with the fire lit on the other side.
 
 He was the Master of Death.
 
 He stood very still and let himself know it.
 
-There was nobody in the clearing to see him. His people were coming back through the trees, he could hear them, a long way off, shouting the boy's name. He did not want them yet. He wanted, for a moment, to stand here alone with it, by the fire, with the boy at his feet.
+There was nobody in the clearing to see him. His people were coming back through the trees, he could hear them a long way off, shouting the boy's name. He didn't want them yet. He wanted, for a moment, to stand here alone with it by the fire, with the boy at his feet.
 
 He looked down at the boy.
 
-He did not feel anything about him. Harry made sure of that. He let Voldemort look down at Harry Potter dead on the ferns and feel only a mild and pleasant tiredness, the tiredness of a man at the end of a long piece of work, and a faint, faint curiosity, like a man looking at a beetle he has trodden on and wondering idly what it had been doing.
+He felt nothing about him. Harry made sure of that. He let Voldemort look down at Harry Potter dead on the ferns and feel only a mild and pleasant tiredness, the tiredness of a man at the end of a long piece of work, and a faint, faint curiosity, like a man looking at a beetle he's trodden on and wondering idly what it had been doing.
 
 It was easy to build.
 
@@ -47997,11 +47997,11 @@ It was the easiest thing in the world. Harry had felt it himself, on a step in t
 
 Somewhere a long way off, somebody was saying his name.
 
-He heard it the way you hear the sea from inside a house with the windows shut. Not in the clearing, and not in the deceit. Somewhere outside both of them, very faint, a long way up.
+He heard it the way you hear the sea from inside a house with the windows shut. Not in the clearing, and not in the deceit. Somewhere outside both, very faint, a long way up.
 
 *Potter. Potter. Potter.*
 
-And other voices, under it, further off, like people talking in the next house.
+And other voices beneath it, further off, like people talking in the next house.
 
 *They're coming back. Ron. Ron, they're coming back…*
 
@@ -48011,39 +48011,39 @@ And other voices, under it, further off, like people talking in the next house.
 
 *Doesn't matter how many. Stand still. Stand still and keep your wand up.* That was Millicent. *Nobody gets past. Right? Nobody.*
 
-He could not stop to listen.
+He couldn't stop to listen.
 
 * * *
 
 They came back into the clearing, the Death Eaters, and they came on their knees.
 
-Harry built them. He built every one of them, out of what Voldemort thought they were, which was not people. Three hundred men and women in black, coming out of the leaning trees one after another into the firelight, and seeing the boy on the ferns, and seeing the Cloak in their master's hand, and going down. Bellatrix first. She went down on the ferns and put her face to the ground at his feet and wept with gladness, and he did not look at her. Then the others. Rows of them. A great dark lake of bowed heads round the fire, all the way back into the trees.
+Harry built them. He built every one of them out of what Voldemort thought they were, which wasn't people. Three hundred men and women in black coming out of the leaning trees one after another into the firelight, and seeing the boy on the ferns, and seeing the Cloak in their master's hand, and going down. Bellatrix first. She went down on the ferns and put her face to the ground at his feet and wept with gladness, and he didn't look at her. Then the others. Rows of them. A great dark lake of bowed heads round the fire, all the way back into the trees.
 
 He walked through them.
 
-They made way for him. He walked out of the clearing and up through the Forest, which bent to let him pass, every tree leaning out of his way, and out onto the long lawn under the stars, with the Cloak over his shoulders and the wand in his hand, and they came behind him, all of them, a long dark river of people, up the slope towards the castle.
+They made way for him. He walked out of the clearing and up through the Forest, which bent to let him pass, every tree leaning out of his way, and out onto the long lawn beneath the stars, the Cloak over his shoulders and the wand in his hand, and they came behind him, all of them, a long dark river of people, up the slope towards the castle.
 
 The castle was waiting.
 
-The great oak doors stood open. The light from the Entrance Hall came out across the steps. And on the steps, and on the lawn, and in the courtyard, and at every window on every floor, there were people.
+The great oak doors stood open. The light from the Entrance Hall spilled out across the steps. And on the steps, and on the lawn, and in the courtyard, and at every window on every floor, there were people.
 
 They were kneeling.
 
-All of them. Every person who had fought him tonight. Every child in a dressing gown. Every teacher. McGonagall on the top step with her head bowed and her hair coming down. Neville. The Weasley twins, both of them, alive, with their faces to the ground. Harry put them all there. He put them there because Voldemort wanted them there, and he gave Voldemort what he wanted, all of it, without stinting, and he did not feel anything about it at all, because he could not afford to.
+All of them. Everyone who'd fought him tonight. Every child in a dressing gown. Every teacher. McGonagall on the top step with her head bowed and her hair coming down. Neville. The Weasley twins, both of them, alive, faces to the ground. Harry put them all there. He put them there because Voldemort wanted them there, and he gave Voldemort what he wanted, all of it, without stinting, and he felt nothing about it at all, because he couldn't afford to.
 
 Voldemort went up the steps between them.
 
 * * *
 
-*Potter*, said the voice, a long way up. *Potter.*
+*Potter*, said the voice a long way up. *Potter.*
 
-It was closer. It had something under it now, something that had not been there before. He could not tell what.
+It was closer. It had something beneath it now, something that hadn't been there before. He couldn't tell what.
 
-He could feel, very faint, at the very edge of everything, as though through a wall of water, that there were people near his body. He could not tell how many. He could not tell who. He could only tell that they were there, and that they were afraid, and that some of them were hurt.
+He could feel, very faint, at the very edge of everything, as though through a wall of water, that there were people near his body. He couldn't tell how many. He couldn't tell who. He could only tell that they were there, and afraid, and that some of them were hurt.
 
 One of them was hurt very badly.
 
-He felt it go through her. He felt her go down. He felt her get up again, which should not have been possible, and stand, and go on standing, square and short and stubborn as a gatepost, aimed straight at him.
+He felt it go through her. He felt her go down. He felt her get up again, which shouldn't have been possible, and stand, and go on standing, square and short and stubborn as a gatepost, aimed straight at him.
 
 *Bulstrode. Bulstrode, stay down…*
 
@@ -48055,35 +48055,35 @@ He felt it go through her. He felt her go down. He felt her get up again, which 
 
 He felt her go down again.
 
-*Draco*, said a voice he did not know at first. It was Hermione's, and it was very high. *Draco, behind you…*
+*Draco*, said a voice he didn't know at first. It was Hermione's, and very high. *Draco, behind you…*
 
-And a curse, and a shield, and Draco Malfoy's voice saying something short and savage that Harry had never heard him say in seven years, not to Harry, not to anybody.
+And a curse, and a shield, and Draco Malfoy's voice saying something short and savage Harry had never heard him say in seven years, not to Harry, not to anybody.
 
-He could not stop.
+He couldn't stop.
 
 * * *
 
 Voldemort walked through his castle.
 
-Harry gave him all of it. He gave him the Entrance Hall with its flagstones swept clean and its doors standing open to the night. He gave him the Great Hall with its four long tables, and the enchanted ceiling full of stars, and the candles burning in the air, and every house banner taken down and a single one hung behind the staff table, black, with a serpent on it, and no other colour anywhere. He gave him the staircases, which did not move under his feet, which stood perfectly still and waited for him to choose.
+Harry gave him all of it. He gave him the Entrance Hall with its flagstones swept clean and its doors standing open to the night. He gave him the Great Hall with its four long tables, and the enchanted ceiling full of stars, and the candles burning in the air, and every house banner taken down and a single one hung behind the staff table, black, with a serpent on it, and no other colour anywhere. He gave him the staircases, which didn't move under his feet, which stood perfectly still and waited for him to choose.
 
 He gave him the seventh floor.
 
-He gave him a corridor on the third floor, which Voldemort had walked down at sixteen with a prefect's badge on his chest, and a bathroom on the second, and a door behind a statue's feet, deep under the school, with two words scratched on it in a boy's hand.
+He gave him a corridor on the third floor, which Voldemort had walked down at sixteen with a prefect's badge on his chest, and a bathroom on the second, and a door behind a statue's feet deep under the school, with two words scratched on it in a boy's hand.
 
-Harry had seen those words. He had stood in front of that door at thirteen with Evelyn beside him and read them in the light of a lamp that lit for a heart-reader and had never once lit for Tom. *I WILL.* Over and over, the length of the door, deeper and deeper, the scratches of a boy of sixteen who had stood there for hours, night after night, with a knife, because a door would not open for him, and he could not understand why.
+Harry had seen those words. He'd stood before that door at thirteen with Evelyn beside him and read them in the light of a lamp that lit for a heart-reader and had never once lit for Tom. *I WILL.* Over and over, the length of the door, deeper and deeper, the scratches of a boy of sixteen who'd stood there for hours, night after night, with a knife, because a door wouldn't open for him and he couldn't understand why.
 
-Harry did not give Voldemort that door.
+Harry didn't give Voldemort that door.
 
 He gave him the door open. He gave him the study lit, the lamp burning cold and white on the black stone desk, the shelves full, as though it had always opened for him. As though it had been waiting.
 
 Voldemort stood in the doorway of Slytherin's study and looked at the light.
 
-Harry felt what came up in him. It came up out of the bottom of a mind as big as a range of hills, a very long way, from a place that had been shut for fifty-five years. It was very small. It was a boy's feeling. It was the feeling of a boy standing in front of a door that has finally opened.
+Harry felt what rose in him. It rose out of the bottom of a mind as big as a range of hills, a very long way, from a place that had been shut for fifty-five years. It was very small. It was a boy's feeling. The feeling of a boy standing before a door that has finally opened.
 
 It was the only thing Harry had felt from him all night.
 
-He did not stop.
+He didn't stop.
 
 * * *
 
@@ -48097,49 +48097,49 @@ He did not stop.
 
 The Mirror was in the room behind the study.
 
-There was no room behind the study. Harry put one there. He put a door in the back wall of it, between two shelves, a door that had never been there and had always been there, and Voldemort saw it and went through it, because that was where it went.
+There was no room behind the study. Harry put one there. He put a door in its back wall between two shelves, a door that had never been there and had always been there, and Voldemort saw it and went through it, because that was where it went.
 
 The room was small and empty and dim. There was nothing in it except a mirror.
 
-It was very tall, as tall as the ceiling, in a gold frame on two clawed feet, and there were words carved round the top of the frame in a language that was not a language, and Harry had found it once in an empty classroom on a Christmas night when he was eleven years old and stood in front of it until morning.
+It was very tall, as tall as the ceiling, in a gold frame on two clawed feet, with words carved round the top of the frame in a language that wasn't a language. Harry had found it once in an empty classroom on a Christmas night when he was eleven and stood in front of it until morning.
 
-He had seen his mother in it. His mother, and his father, and a great many people behind them with his face about the eyes and his hair, all of them looking at him, and all of them loving him, and he had stood there and felt it, from the glass, the first time he had ever felt anything from anyone that was aimed at him and asked for nothing back.
+He'd seen his mother in it. His mother and his father and a great many people behind them with his face about the eyes and his hair, all of them looking at him and loving him, and he'd stood there and felt it from the glass, the first time he'd ever felt anything from anyone that was aimed at him and asked for nothing back.
 
-He had never told anyone what he saw.
+He'd never told anyone what he saw.
 
 He gave Voldemort the Mirror.
 
-Voldemort knew what it was. He had read of it. He knew what it showed: the deepest wish of the heart of whoever stood before it, nothing more and nothing less. And he knew what he would see, because he knew what he wanted, he had always known, he had known since an orphanage and a wardrobe on fire. He wanted to live. He wanted to be the man who did not die.
+Voldemort knew what it was. He'd read of it. He knew what it showed, the deepest wish of the heart of whoever stood before it, nothing more and nothing less. And he knew what he'd see, because he knew what he wanted, he'd always known, he'd known since an orphanage and a wardrobe on fire. He wanted to live. He wanted to be the man who didn't die.
 
-He had come, at the end of his long walk through his castle, with the three Hallows on him and his enemies on their knees, to look at himself immortal.
+He'd come, at the end of his long walk through his castle, with the three Hallows on him and his enemies on their knees, to look at himself immortal.
 
-He went and stood in front of the glass.
+He went and stood before the glass.
 
-Harry felt him go. He felt him cross the small dim room in three long steps and stop, and lift his head, the way a man lifts his head to look at a portrait of himself he has commissioned and has not yet seen.
+Harry felt him go. He felt him cross the small dim room in three long strides and stop, and lift his head, the way a man lifts his head to look at a portrait of himself he's commissioned and hasn't yet seen.
 
-And the Mirror did not show him.
+And the Mirror didn't show him.
 
 It showed a boy.
 
-A thin boy of seventeen, with untidy black hair that needed cutting and a pair of round glasses mended at the bridge, in a coat that needed washing, alive. Standing in the glass where Voldemort should have been. Looking out at him.
+A thin boy of seventeen with untidy black hair that needed cutting and a pair of round glasses mended at the bridge, in a coat that needed washing, alive. Standing in the glass where Voldemort should have been. Looking out at him.
 
 The boy smiled.
 
-It was a polite smile. Harry knew it very well. It was the smile he gave to shop assistants and train guards and Madam Pince, and a newsagent in Leeds who asked him every morning whether he was at the college. It was the smile he gave to strangers, when he could not be bothered to feel anything about them. Pleasant and empty and perfectly courteous, and aimed at nobody at all.
+It was a polite smile. Harry knew it very well. It was the smile he gave shop assistants and train guards and Madam Pince, and a newsagent in Leeds who asked him every morning whether he was at the college. It was the smile he gave strangers when he couldn't be bothered to feel anything about them. Pleasant and empty and perfectly courteous, and aimed at nobody at all.
 
 It was the deepest wish of Tom Riddle's heart.
 
-Harry had known that for seven years. He had felt it in a diary at twelve, the envy coming up every time he spoke. He had felt it in the fragment for fifteen years before that, without knowing what he felt. Tom did not want to live forever. Not really. Not at the bottom. He wanted to be the boy who could feel what other people felt. He wanted to be Harry.
+Harry had known that for seven years. He'd felt it in a diary at twelve, the envy rising every time he spoke. He'd felt it in the fragment for fifteen years before that, without knowing what he felt. Tom didn't want to live for ever. Not really. Not at the bottom. He wanted to be the boy who could feel what other people felt. He wanted to be Harry.
 
-And he did not know it.
+And he didn't know it.
 
-He had never once looked.
+He'd never once looked.
 
-Harry felt him look now. He felt it go through Voldemort, all at once, very fast, from the top of that enormous mind to the bottom, the thing he had never once in seventy years let himself feel. He felt the incomprehension first. Then the rage. Then, under the rage, coming up out of the dark like something out of deep water, the small hot bitter thing that had snapped at Harry's hand in a diary when he was twelve.
+Harry felt him look now. He felt it go through Voldemort all at once, very fast, from the top of that enormous mind to the bottom, the thing he'd never once in seventy years let himself feel. He felt the incomprehension first. Then the rage. Then, beneath the rage, rising out of the dark like something out of deep water, the small hot bitter thing that had snapped at Harry's hand in a diary when he was twelve.
 
 Voldemort raised the Elder Wand at the boy in the glass.
 
-He did not think about it. He was not thinking. He was a man who had walked all the way through his own castle to look at himself and found somebody else standing there, smiling at him as though he did not matter, and he did what he had always done, since an orphanage, since a bathroom, since a graveyard and a house in Godric's Hollow, to anything that stood where he wanted to stand.
+He didn't think about it. He wasn't thinking. He was a man who'd walked all the way through his own castle to look at himself and found somebody else standing there, smiling at him as though he didn't matter, and he did what he'd always done, since an orphanage, since a bathroom, since a graveyard and a house in Godric's Hollow, to anything that stood where he wanted to stand.
 
 "*Avada…*"
 
@@ -48147,11 +48147,11 @@ He did not think about it. He was not thinking. He was a man who had walked all 
 
 Harry had built the glass out of his face.
 
-He had built it the way you build a trap for something you know very well, out of the one thing it will never think to look at. The glass of the Mirror was not glass. There had never been any glass. There was the boy in the frame, smiling, and behind the boy, all the way through, there was nothing at all but the inside of a long pale face in a clearing in the Forest, three feet from the end of its own wand.
+He'd built it the way you build a trap for something you know very well, out of the one thing it will never think to look at. The glass of the Mirror wasn't glass. There'd never been any glass. There was the boy in the frame, smiling, and behind the boy, all the way through, there was nothing at all but the inside of a long pale face in a clearing in the Forest, three feet from the end of its own wand.
 
-He had learned it at eleven. In an underground room, in terror, on a man he had loved, who had turned his wand on the face at the back of his own head because Harry had shown him, without meaning to, what he hated most.
+He'd learned it at eleven. In an underground room, in terror, on a man he'd loved, who'd turned his wand on the face at the back of his own head because Harry had shown him, without meaning to, what he hated most.
 
-He had not meant to, then.
+He hadn't meant to, then.
 
 He meant to now.
 
@@ -48159,11 +48159,11 @@ He meant to now.
 
 And in the last instant, in the last splinter of the last second, as the word left him, Voldemort felt it.
 
-Harry felt him feel it. Something wrong. Something under the glass. A draught from a door that should have been shut. A man as old and as careful as that does not live seventy years without learning the feel of a trap, and he felt it, very faint and very late, and he did not know what it was, and he did the only thing there was time to do.
+Harry felt him feel it. Something wrong. Something under the glass. A draught from a door that should have been shut. A man as old and as careful as that doesn't live seventy years without learning the feel of a trap, and he felt it, very faint and very late, and he didn't know what it was, and he did the only thing there was time to do.
 
 He wrenched the wand aside.
 
-Not at the glass. Away from it. Away from whatever was behind it. Out of the deceit altogether, towards the one real thing he could feel in the whole of that false world, which was the boy's body, lying on the ferns in the clearing, with six people standing round it in the firelight.
+Not at the glass. Away from it. Away from whatever lay behind it. Out of the deceit altogether, towards the one real thing he could feel in the whole of that false world, which was the boy's body lying on the ferns in the clearing, with six people standing round it in the firelight.
 
 The curse went at Harry.
 
@@ -48173,69 +48173,69 @@ He felt it leave the pale wand in a clearing in the Forest, the real one, and go
 
 And he felt the wand refuse.
 
-It was not a feeling he had ever had. Wands did not feel. Objects had nothing. But for a hair of a second, in the clearing, through the last thin edge of the deceit, he felt something in the pale wand turn over, the way a cat turns over in your arms when it has decided it does not want to be held. It knew him. He did not know how it knew him. He had never touched it. It knew him the way a dog knows the man who feeds it, by something under the skin, and it would not do this. Not to him.
+It wasn't a feeling he'd ever had. Wands didn't feel. Objects had nothing. But for a hair of a second, in the clearing, through the last thin edge of the deceit, he felt something in the pale wand turn over, the way a cat turns over in your arms when it's decided it doesn't want to be held. It knew him. He didn't know how. He'd never touched it. It knew him the way a dog knows the man who feeds it, by something beneath the skin, and it wouldn't do this. Not to him.
 
 The curse turned back.
 
-It turned back in the air between the wand and Harry's body, the way water turns back from a wall, and it went the only way there was left for it to go.
+It turned back in the air between the wand and Harry's body, the way water turns back from a wall, and it went the only way left for it to go.
 
 It had always been coming back to him. Harry would think that afterwards, many times, on many nights. Through the glass or through the wand. Either way.
 
 Lord Voldemort fell.
 
-He fell in the clearing by the fire, at sixteen minutes to one in the morning on the second of May, quite quietly, on his back on the trampled ferns, with his eyes open and his long white hands empty and the ring still on his finger. The pale wand rolled away from him across the ground and stopped against a root.
+He fell in the clearing by the fire at sixteen minutes to one in the morning on the second of May, quite quietly, on his back on the trampled ferns, his eyes open, his long white hands empty, the ring still on his finger. The pale wand rolled away from him across the ground and stopped against a root.
 
-And inside the deceit, in a small dim room behind a study under a school, the Mirror cracked across.
+And inside the deceit, in a small dim room behind a study beneath a school, the Mirror cracked across.
 
 * * *
 
 It came down all at once.
 
-He had not built it to come down. He had built it to hold, for as long as it needed to, and it had needed to for exactly as long as there was somebody in it to deceive. There was not. There was nobody left in it but Harry.
+He hadn't built it to come down. He'd built it to hold for as long as it needed to, and it had needed to for exactly as long as there was somebody in it to deceive. There wasn't. There was nobody left in it but Harry.
 
-The Mirror went first. The crack went across it and then down, and the boy in the glass went with it, smiling, in pieces. Then the walls of the little room. Then the study, the shelves and the black stone desk and the lamp, all going, not breaking, simply ceasing, the way a word stops meaning anything when you say it too many times. Then the corridors, the staircases, the Great Hall with its single black banner. The people kneeling on the lawn. The long dark river of them. The Forest, bending out of the way.
+The Mirror went first. The crack ran across it and then down, and the boy in the glass went with it, smiling, in pieces. Then the walls of the little room. Then the study, the shelves and the black stone desk and the lamp, all going, not breaking, simply ceasing, the way a word stops meaning anything when you say it too many times. Then the corridors, the staircases, the Great Hall with its single black banner. The people kneeling on the lawn. The long dark river of them. The Forest, bending out of the way.
 
 He was standing in the Entrance Hall.
 
-He did not know how he had got there. It was the Entrance Hall, and it was not, and it was coming apart round him, the flagstones going one by one from the edges inwards like ice going off a pond in spring. There was no light anywhere. There was no sound. There was no one.
+He didn't know how he'd got there. It was the Entrance Hall, and it wasn't, and it was coming apart round him, the flagstones going one by one from the edges inwards like ice going off a pond in spring. There was no light anywhere. There was no sound. There was no one.
 
 He went to the doors.
 
-They were not there. There was a wall where the doors had been, a plain stone wall, and he put his hands on it, and it went under his hands like sand.
+They weren't there. There was a wall where the doors had been, a plain stone wall, and he put his hands on it, and it went under his hands like sand.
 
-He turned round. He went to the staircase. The staircase was going. He went to the passage to the dungeons, and the passage was a long way off, and getting further, and when he ran towards it, it went away from him exactly as fast as he ran.
+He turned. He went to the staircase. The staircase was going. He went to the passage to the dungeons, and the passage was a long way off and getting further, and when he ran towards it, it receded exactly as fast as he ran.
 
 *Oswin*, thought Harry. *Could not find the door back to himself.*
 
-He had been here before. He had lived here for a month, on a bridge, on a step, in the snow, without knowing it was a place. He had known, then, for a whole month, that there was nothing outside. That he was the only thing that was real.
+He'd been here before. He'd lived here for a month, on a bridge, on a step, in the snow, without knowing it was a place. He'd known then, for a whole month, that there was nothing outside. That he was the only thing that was real.
 
 He stood in the middle of the Entrance Hall as it went, and reached.
 
 There was nothing.
 
-He reached for the clearing, for his body, for the six people round it, for anyone. He reached the way he had reached all his life, the way he breathed, and it went out from him into the dark and found nothing at all, in any direction, for ever. Not silence. Silence was a person. This was nothing. This was the place he had built, with its builder still inside it and no one else, coming down round him.
+He reached for the clearing, for his body, for the six people round it, for anyone. He reached the way he'd reached all his life, the way he breathed, and it went out from him into the dark and found nothing at all, in any direction, for ever. Not silence. Silence was a person. This was nothing. This was the place he'd built, with its builder still inside it and no one else, coming down round him.
 
-He could not remember which way was out.
+He couldn't remember which way was out.
 
-He could not remember whether there was an out.
+He couldn't remember whether there was an out.
 
 He stood on the last of the flagstones in the dark, and the last of them began to go.
 
-And then, from very close, from no direction at all, from somewhere just behind his shoulder, where she had always been, somebody said his name.
+And then, from very close, from no direction at all, from somewhere just behind his shoulder, where she'd always been, somebody said his name.
 
 Not *Potter*.
 
 "Harry," said Evelyn.
 
-She had never said it before. In seven years. Not once. Not in Madam Malkin's, or a classroom on the fourth floor, or a chamber under the school, or another world, or a courtroom, or a shack, with the candle going out. She had said *Potter* ten thousand times. She had said it dry and flat and patient and furious and frightened, and in the snow, and under a chandelier, and he had known exactly where she was every time she said it.
+She'd never said it before. In seven years. Not once. Not in Madam Malkin's, or a classroom on the fourth floor, or a chamber beneath the school, or another world, or a courtroom, or a shack with the candle going out. She'd said *Potter* ten thousand times. She'd said it dry and flat and patient and furious and frightened, and in the snow, and under a chandelier, and he'd known exactly where she was every time she said it.
 
-She said *Harry*, quite quietly, as though it were the most ordinary thing in the world. As though she had been saying it for years, in her head, and had simply decided it was time.
+She said *Harry*, quite quietly, as though it were the most ordinary thing in the world. As though she'd been saying it in her head for years and had simply decided it was time.
 
 He turned towards it.
 
 There was a door.
 
-It had always been there. It was a plain wooden door, quite small, with an old brass handle, in a wall that was not there, just behind his shoulder. He had walked past it a hundred times. He had not been able to see it, because it had not been his, and everything in that place was his.
+It had always been there. It was a plain wooden door, quite small, with an old brass handle, in a wall that wasn't there, just behind his shoulder. He'd walked past it a hundred times. He hadn't been able to see it, because it wasn't his, and everything in that place was his.
 
 He put his hand on the handle.
 
@@ -48245,27 +48245,27 @@ He opened it.
 
 He opened his eyes.
 
-He was lying on his back on the ferns. There was a fire, quite close, burning low. There were trees all round, standing straight, the way trees stand. The sky above them was not quite black any more. It was the very dark grey that comes about an hour before the light.
+He was lying on his back on the ferns. There was a fire, quite close, burning low. There were trees all round, standing straight, the way trees stand. The sky above them wasn't quite black any more. It was the very dark grey that comes about an hour before the light.
 
 Somebody was holding his hand.
 
-He turned his head. It was Evelyn. She was on her knees on the ferns beside him with his right hand in both of hers, holding it so tightly that the bones of it hurt, and her face was white and wet and perfectly still, and she was looking at him.
+He turned his head. It was Evelyn. She was on her knees on the ferns beside him with his right hand in both of hers, holding it so tightly the bones hurt, and her face was white and wet and perfectly still, and she was looking at him.
 
 He looked back at her.
 
-He did not say anything. Neither did she.
+Neither of them spoke.
 
 He turned his head the other way.
 
-Millicent was lying beside him on the ferns, quite close, on her side, facing him, with her wand still in her hand and her eyes open. There was blood on her face and on the front of her robes and on the ferns under her. She was not moving.
+Millicent lay beside him on the ferns, quite close, on her side, facing him, her wand still in her hand and her eyes open. There was blood on her face and on the front of her robes and on the ferns beneath her. She wasn't moving.
 
-Beyond her, he could see Ron on his knees, and Hermione beside him with her hand on his back, and Neville standing with his wand still up, turning slowly round in a circle, looking into the trees. And Draco, a little apart, sitting on the ground with his back to an oak and his mother's wand across his knees, looking at Millicent.
+Beyond her he could see Ron on his knees, and Hermione beside him with her hand on his back, and Neville standing with his wand still up, turning slowly in a circle, looking into the trees. And Draco, a little apart, sitting on the ground with his back to an oak and his mother's wand across his knees, looking at Millicent.
 
 There was no sound in the clearing at all.
 
 Harry lay on the ferns and reached for them.
 
-He reached for Ron, who was two yards away, on his knees. For Hermione, beside him. For Neville. For Draco, by the oak. For Millicent. For Evelyn, holding his hand.
+He reached for Ron, two yards away on his knees. For Hermione beside him. For Neville. For Draco by the oak. For Millicent. For Evelyn, holding his hand.
 
 He reached again.
 
