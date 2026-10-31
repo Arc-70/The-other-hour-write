@@ -38207,27 +38207,27 @@ It was written in Theo's small neat hand, in pencil, quite steadily.
 
 Theo came back on the eighth of January with the Mark on his left arm and nothing at all in his face.
 
-Harry read him on the platform at Hogsmeade, in the snow, as he got down from the train with his trunk and his chess set. He had been expecting a great many things. He had lain awake on the night of the second of January with a pencil chess position on the table beside his bed and one word under it, and imagined all of them.
+Harry read him on the platform at Hogsmeade, in the snow, as he got down from the train with his trunk and his chess set. He'd been expecting a great many things. He'd lain awake on the night of the second of January with a pencilled chess position on the table beside his bed and one word beneath it, and imagined all of them.
 
 He found none of them.
 
-Theo was calm. It was the old calm, the calm sadness that lived at the bottom of him like water in a well, and it was all there, and it was on the top, quite smooth. And under it, holding it down, there was something Harry had never felt in Theo. It was very tight and very small and it was holding on with both hands.
+Theo was calm. The old calm, the calm sadness that lived at the bottom of him like water in a well, all of it there, on the top, quite smooth. And beneath it, holding it down, was something Harry had never felt in Theo. Very tight and very small, and holding on with both hands.
 
-It was control.
+Control.
 
-Theo had learned to hold himself still. He had learned it in a cold house in Yorkshire over Christmas, kneeling on a stone floor in front of his father, with somebody's long white hand on his arm. He had learned it fast and well, because he was clever, and because he had to, and he was doing it now, on the platform, in front of Harry, and he did not stop.
+Theo had learned to hold himself still. He'd learned it in a cold house in Yorkshire over Christmas, kneeling on a stone floor in front of his father, with somebody's long white hand on his arm. He'd learned it fast and well, because he was clever, and because he had to. He was doing it now, on the platform, in front of Harry, and he didn't stop.
 
-"All right?" said Harry.
+"All right?" Harry asked.
 
 "Fine," said Theo.
 
-Harry did not ask again.
+Harry didn't ask again.
 
-That night Theo came to his bed at one, and sat on the end of it with the curtains drawn, and rolled up his left sleeve, and held his arm out in the light of Harry's wand, and did not say anything. The Mark was black and new and raised, like a burn that has not healed.
+That night Theo came to his bed at one and sat on the end of it with the curtains drawn. He rolled up his left sleeve and held out his arm in the light of Harry's wand, without a word. The Mark was black and new and raised, like a burn that hasn't healed.
 
 Harry looked at it.
 
-He read Theo, and under the control, at the very bottom, there was the drop. It was still there. It had not gone. Theo had been told what to do, and done it, and the relief had come, and gone, and the drop was still there.
+He read Theo, and beneath the control, at the very bottom, was the drop. It was still there. It hadn't gone. Theo had been told what to do, and done it, and the relief had come and gone, and the drop was still there.
 
 "Tell me," said Harry.
 
@@ -38235,29 +38235,45 @@ He read Theo, and under the control, at the very bottom, there was the drop. It 
 
 "Does it?"
 
-"No. It's cold. All the time. Like something sitting on your arm that isn't yours." He pulled his sleeve down. "You'll want names."
+"No. It's cold. All the time. Like something sitting on your arm that isn't yours."
+
+He pulled his sleeve down.
+
+"You'll want names."
 
 "Yes."
 
-"I've got names," said Theo. "I wrote them down. In my head. I did it the way you do a position, so I wouldn't lose it." He almost smiled. "I'm good at that, you know. It turns out. Being in a room and not being there."
+"I've got names," said Theo. "I wrote them down. In my head. I did it the way you do a position, so I wouldn't lose it."
+
+He almost smiled.
+
+"I'm good at that, you know. It turns out. Being in a room and not being there."
 
 Theo told him.
 
 * * *
 
-There was not much, the first time. There was the room in the Nott house, a long cold drawing room with dust sheets on half the furniture and a fire that would not draw. There were eleven people in it. Theo named them, quietly, one by one, and Harry wrote them down afterwards on the inside of the back cover of his Potions book, in very small letters, among the other things. Theo's father. Two Carrows, a brother and a sister. Yaxley. Rookwood. Thaddeus Selwyn.
+There wasn't much, the first time. There was the room in the Nott house, a long cold drawing room with dust sheets on half the furniture and a fire that wouldn't draw. There were eleven people in it. Theo named them quietly, one by one, and afterwards Harry wrote them on the inside of the back cover of his Potions book in very small letters, amongst the other things. Theo's father. Two Carrows, a brother and a sister. Yaxley. Rookwood. Thaddeus Selwyn.
 
 "Selwyn," said Harry.
 
-"Big man. Laughs a lot. Said *there we are* when I knelt down." Theo was looking at the curtain. "He was kind to me afterwards. He gave me a drink. He said it was always hard the first time." He was quiet. "He was the only one who was kind to me."
+"Big man. Laughs a lot. Said *there we are* when I knelt down."
+
+Theo was looking at the curtain.
+
+"He was kind to me afterwards. He gave me a drink. He said it was always hard the first time."
+
+He paused.
+
+"He was the only one who was kind to me."
 
 And there was the man by the fire.
 
-Theo did not say his name. He did not describe him. He said that there had been a man by the fire, and that when Theo knelt down in front of him the man had looked at him for a long time and said nothing at all, and then had put out his hand.
+Theo didn't say his name. He didn't describe him. He said there'd been a man by the fire, and that when Theo knelt in front of him the man had looked at him for a long time without a word, and then put out his hand.
 
 "He wears a ring," said Theo. "On his right hand. Gold. With a black stone. It's cracked."
 
-Harry did not say anything.
+Harry kept very still.
 
 "It was cold," said Theo. "His hand. When he touched my arm."
 
@@ -38265,41 +38281,41 @@ Harry did not say anything.
 
 After that it came in chess.
 
-It came every week, in the post, by ordinary owl, to Theo, from his father, in letters that Theo read at breakfast and then, at night, decoded into chess positions that he left folded in Harry's Potions book on the dormitory table. Most of it was nothing. Names of people who had been to the house. A meeting in a pub in Kent. A family in Norfolk who had been *visited*.
+It came every week, in the post, by ordinary owl, to Theo, from his father. Theo read the letters at breakfast and then, at night, decoded them into chess positions he left folded in Harry's Potions book on the dormitory table. Most of it was nothing. Names of people who'd been to the house. A meeting in a pub in Kent. A family in Norfolk who'd been *visited*.
 
-Some of it was not nothing.
+Some of it wasn't nothing.
 
 *The Malfoy boy has a task. Nobody knows what. Father says it is an honour. Father says he is not expected to succeed.*
 
 Harry read that one three times.
 
-He gave it to Dumbledore on the Saturday, the way he gave him all of it, in Dumbledore's office, with the Pensieve on the desk. Dumbledore read it. He did not say anything. He folded it up and put it in the drawer of his desk, and Harry read him, and there was something in him that Harry had felt in him in the shack in November.
+He gave it to Dumbledore on the Saturday, the way he gave him all of it, in Dumbledore's office with the Pensieve on the desk. Dumbledore read it. He didn't comment. He folded it up and put it in the drawer of his desk. Harry read him, and there was something in him that Harry had felt in the shack in November.
 
-It was not surprise.
+It wasn't surprise.
 
 * * *
 
-Draco was not in Potions on the second Tuesday in February, or at lunch, or in Defence.
+Draco wasn't in Potions on the second Tuesday in February, or at lunch, or in Defence.
 
-Harry noticed. He noticed everything about Draco now, all the time, the way you notice weather. He had been noticing since September. He had read him every day, at every meal, the terror and the exhaustion and the thin, thin pride, and he had watched him get thinner and greyer and quieter, and go up to the seventh floor every evening after dinner and come down after midnight, and not sleep.
+Harry noticed. He noticed everything about Draco now, all the time, the way you notice weather. He'd been noticing since September. He'd read him every day, at every meal, the terror and the exhaustion and the thin, thin pride. He'd watched him grow thinner and greyer and quieter, and go up to the seventh floor every evening after dinner and come down after midnight, and not sleep.
 
-He read the castle for him at four o'clock.
+At four o'clock he read the castle for him.
 
-He did it standing in the entrance hall, the way he had once read for Evelyn, with his back against the wall and his eyes shut. He reached up through the floors, and along the corridors, and through the walls, sorting, the way he sorted a common room.
+He did it standing in the entrance hall, the way he'd once read for Evelyn, with his back against the wall and his eyes shut. He reached up through the floors, and along the corridors, and through the walls, sorting, the way he sorted a common room.
 
 He found him on the sixth floor.
 
-He found him in a boys' bathroom at the end of the west corridor, the one with the broken tap that nobody used, and he was not alone. There was something with him, faint, one thin grey note, a ghost. And Draco was crying.
+He found him in a boys' bathroom at the end of the west corridor, the one with the broken tap that nobody used, and he wasn't alone. Something was with him, faint, one thin grey note. A ghost. And Draco was crying.
 
 Harry stood in the entrance hall with his eyes shut and read it.
 
-It was so loud that he could not think.
+It was so loud he couldn't think.
 
-He had read Draco Malfoy afraid a thousand times. He had read him afraid of his father, and of not being good enough, and of a hippogriff and a Dementor and a graveyard. He had read him afraid on the night of the feast, the terror under the pride. He had read him sick in an alley in the snow.
+He'd read Draco Malfoy afraid a thousand times. Afraid of his father, and of not being good enough, and of a hippogriff and a Dementor and a graveyard. Afraid on the night of the feast, the terror beneath the pride. Sick in an alley in the snow.
 
-He had never read this.
+He'd never read this.
 
-It was despair. It was despair so total that there was nothing else in it, no fear, no pride, no hate, nothing on top and nothing underneath. It was the despair of a boy who has been trying to do a thing for five months, every night, alone, and cannot do it, and knows that he cannot do it, and knows what will happen to him, and to his mother, and to his father in a cell, when the time runs out. And the time was running out. Harry could feel that too. It was in the despair the way a clock is in a room.
+It was despair. Despair so total there was nothing else in it. No fear, no pride, no hate, nothing on top and nothing underneath. The despair of a boy who'd been trying to do a thing every night for five months, alone, and couldn't do it. Who knew he couldn't. Who knew what would happen to him, and to his mother, and to his father in a cell, when the time ran out. And the time was running out. Harry could feel that too. It was in the despair the way a clock is in a room.
 
 Harry opened his eyes.
 
@@ -38307,11 +38323,11 @@ He went up the stairs.
 
 * * *
 
-He did not know what he was going to say.
+He didn't know what he was going to say.
 
-He went up five flights and along the sixth-floor corridor to the west end, and he stopped outside the bathroom door, and he did not know. He had thought about it all the way up. He had thought about it for five months, every time he read Draco across a table, and he had never once known.
+He went up five flights and along the sixth-floor corridor to the west end and stopped outside the bathroom door, and he didn't know. He'd thought about it all the way up. He'd thought about it for five months, every time he read Draco across a table, and he'd never once known.
 
-He knew what Draco wanted. He had always known. He had known since the train in his first year. Draco wanted to be good enough. Draco wanted his father to look at him the way his father looked at Lucius Malfoy in a mirror. Draco wanted Harry Potter to be smaller than him, and to know it.
+He knew what Draco wanted. He'd always known. He'd known since the train in his first year. Draco wanted to be good enough. Draco wanted his father to look at him the way his father looked at Lucius Malfoy in a mirror. Draco wanted Harry Potter to be smaller than him, and to know it.
 
 None of that was any use now.
 
@@ -38321,31 +38337,35 @@ He pushed the door open.
 
 The bathroom was long and cold, with a row of sinks along one wall and cracked green tiles on the floor, wet. A tap was running somewhere. A grey light came in through a high frosted window.
 
-Draco was at the far end, at the last sink, with both hands on the edge of it and his head down. His shoulders were shaking.
+Draco was at the far end, at the last sink, both hands on its edge and his head down. His shoulders were shaking.
 
-Moaning Myrtle was hovering beside him, pearly and transparent, with her glasses misted.
+Moaning Myrtle hovered beside him, pearly and transparent, her glasses misted.
 
 "…don't," she was saying. "Don't. Tell me what's wrong. I can help. I can help you…"
 
-"Nobody can help me," said Draco, into the sink. His voice was thick and wet and very young. "I can't do it. I can't. It won't work. And if I don't do it soon, he says he'll kill me…"
+"Nobody can help me," said Draco into the sink. His voice was thick and wet and very young. "I can't do it. I can't. It won't work. And if I don't do it soon, he says he'll kill me…"
 
 He looked up.
 
 He saw Harry in the cracked mirror over the sink.
 
-Harry read him see it. He read the despair stop, all at once, the way a sound stops. And he read what came up in its place, so fast that it was there before Draco had finished turning round.
+Harry read him see it. He read the despair stop, all at once, the way a sound stops. And he read what rose in its place, so fast it was there before Draco had finished turning round.
 
-It was shame.
+Shame.
 
-It was larger than the despair. It was larger than anything. It was the shame of a boy who has been seen crying in a bathroom by the one person in the world he would most rather have died than be seen by. Harry Potter, who always knew when he was afraid. Harry Potter, who had always looked away when he was homesick, as though he had walked in on somebody in the bath.
+It was larger than the despair. Larger than anything. The shame of a boy who's been seen crying in a bathroom by the one person in the world he'd most rather have died than be seen by. Harry Potter, who always knew when he was afraid. Harry Potter, who'd always looked away when he was homesick, as though he'd walked in on somebody in the bath.
 
-He had not looked away this time.
+He hadn't looked away this time.
 
 "Draco," said Harry.
 
-He did not know what came next. He said the only thing he had.
+He didn't know what came next. He said the only thing he had.
 
-"I know. I know what it is. I can feel it. I've felt it since September." He did not move from the door. "You don't have to do it on your own. Whatever it is. There are people who can…"
+"I know. I know what it is. I can feel it. I've felt it since September."
+
+He didn't move from the door.
+
+"You don't have to do it on your own. Whatever it is. There are people who can…"
 
 "*Get out*," said Draco.
 
@@ -38353,11 +38373,11 @@ He did not know what came next. He said the only thing he had.
 
 "*GET OUT!*"
 
-And Harry read it come up.
+And Harry read it rise.
 
-It came up through the shame, very fast, hot and white and enormous, and it was aimed at him, and he knew it. He had felt it in a churchyard in forty people. He had felt it in Bellatrix Lestrange, laughing at the foot of an arch.
+It came up through the shame, very fast, hot and white and enormous, aimed at him, and he knew it. He'd felt it in a churchyard in forty people. He'd felt it in Bellatrix Lestrange, laughing at the foot of an arch.
 
-It was the wish to hurt.
+The wish to hurt.
 
 Draco's wand came up.
 
@@ -38365,25 +38385,25 @@ Draco's wand came up.
 
 They duelled.
 
-It was very fast. It was the fastest Harry had ever fought, faster than the graveyard, because the bathroom was small and they were only fifteen feet apart and Draco was not trying to win. He was trying to hurt. He threw a hex that missed Harry by an inch and blew a sink to pieces, and water came up out of the broken pipe in a great white gush, and Myrtle screamed.
+It was very fast. The fastest Harry had ever fought, faster than the graveyard, because the bathroom was small and they were only fifteen feet apart and Draco wasn't trying to win. He was trying to hurt. He threw a hex that missed Harry by an inch and blew a sink to pieces. Water came up out of the broken pipe in a great white gush, and Myrtle screamed.
 
 Harry threw a Shield Charm. It held.
 
 Draco threw something else, purple, and the bin behind Harry exploded.
 
-Harry was reading him the whole time. He could not have stopped. He was reading what was coming before it came, the way he always did, the moment of decision in Draco a quarter of a second before the spell, and he was dodging, and shielding, and he was not attacking, because he did not want to, because he had come up five flights of stairs to say something true to a crying boy.
+Harry was reading him the whole time. He couldn't have stopped. He was reading what was coming before it came, the way he always did, the moment of decision in Draco a quarter of a second before the spell. He was dodging, and shielding, and he wasn't attacking, because he didn't want to. Because he'd come up five flights of stairs to say something true to a crying boy.
 
 And then he read the decision change.
 
-He read it go from *hurt him* to something else. Something that came up through the wish to hurt from much further down, from a cold house in Wiltshire and a long white hand and a voice saying *the boy is to be used*. Harry knew it. He had heard its first syllable once in a churchyard, and on the floor of row ninety-seven, and he had felt it in his own body afterwards for a week.
+He read it go from *hurt him* to something else. Something that rose through the wish to hurt from much further down, from a cold house in Wiltshire and a long white hand and a voice saying *the boy is to be used*. Harry knew it. He'd heard its first syllable once in a churchyard, and on the floor of row ninety-seven, and he'd felt it in his own body for a week afterwards.
 
 Draco opened his mouth.
 
 "*Cruci…*"
 
-Harry did not think.
+Harry didn't think.
 
-He did not decide. He would think about that for a long time afterwards, and he would come to the end of thinking about it, every time, at the same place: he did not decide. He was frightened and he was angry and he had read the first syllable of the Cruciatus Curse in the mouth of a boy fifteen feet away, and his wand was already up, and there was a word in his head. It had been in his head since the autumn. It had been under his pillow every night, in faded ink, on page one hundred and ninety-three, pressed so hard into the paper that the nib had torn.
+He didn't decide. He'd think about that for a long time afterwards, and he'd come to the end of thinking about it, every time, at the same place. He didn't decide. He was frightened and he was angry, and he'd read the first syllable of the Cruciatus Curse in the mouth of a boy fifteen feet away. His wand was already up, and there was a word in his head. It had been in his head since the autumn. It had been under his pillow every night, in faded ink, on page one hundred and ninety-three, pressed so hard into the paper that the nib had torn.
 
 *For enemies.*
 
@@ -38391,25 +38411,25 @@ He did not decide. He would think about that for a long time afterwards, and he 
 
 * * *
 
-Blood came out of Draco's face and chest as though he had been cut with an invisible sword.
+Blood burst from Draco's face and chest as though he'd been slashed with an invisible sword.
 
-He went backwards. He went backwards into the wall by the broken sink and slid down it, and the water from the broken pipe was coming down over him, and the blood went into the water, and the water went across the floor, red, very fast, across the cracked green tiles towards Harry's feet.
+He went backwards. He went backwards into the wall by the broken sink and slid down it, and the water from the broken pipe was coming down over him, and the blood went into the water. The water ran across the floor, red, very fast, across the cracked green tiles towards Harry's feet.
 
 His wand fell out of his hand and rolled.
 
 Harry stood by the door.
 
-He did not move. He could not move. He stood there with his wand still pointing and read Draco, because he could not stop, because he had never in his life been able to stop.
+He didn't move. He couldn't. He stood there with his wand still pointing and read Draco, because he couldn't stop, because he'd never in his life been able to stop.
 
-He read the shock. It was enormous and white and it was everywhere.
+He read the shock. Enormous and white, everywhere.
 
 Then he read it go quiet.
 
-It went quiet the way it had gone quiet in Cedric Diggory, in a churchyard, on the grass. It went quiet all at once, from the edges in. The shock, and the pain, and the despair under them, and the shame, and the terror, everything that had been Draco Malfoy for six years, all of it, getting quieter, and quieter, the way a room gets quieter when the people in it are going out of it, one by one, through a door at the far end.
+It went quiet the way it had gone quiet in Cedric Diggory, in a churchyard, on the grass. All at once, from the edges in. The shock, and the pain, and the despair beneath them, and the shame, and the terror, everything that had been Draco Malfoy for six years, all of it growing quieter, and quieter, the way a room grows quieter when the people in it are leaving, one by one, through a door at the far end.
 
 Harry read it go.
 
-He did not do anything. He did not know what to do. He stood in the doorway with the water coming over his shoes, red, and read Draco Malfoy go quiet on a bathroom floor, and could not think of a single spell.
+He didn't do anything. He didn't know what to do. He stood in the doorway with the water coming over his shoes, red, and read Draco Malfoy go quiet on a bathroom floor, and couldn't think of a single spell.
 
 Myrtle was screaming. "*MURDER! MURDER IN THE BATHROOM! MURDER!*"
 
@@ -38419,19 +38439,19 @@ There was almost nothing left.
 
 The door behind him crashed open.
 
-Snape came past him so fast that he knocked Harry into the wall. He did not look at Harry. He went down on his knees in the red water beside Draco and drew his wand and pointed it at the cuts across Draco's chest and face, and began to murmur.
+Snape came past him so fast he knocked Harry into the wall. He didn't look at Harry. He went down on his knees in the red water beside Draco and drew his wand and pointed it at the cuts across Draco's chest and face, and began to murmur.
 
-Harry had never heard the spell. It had no incantation. It was more like singing. It was low and slow and it went up and down, like a lullaby, like somebody singing a child to sleep, and Snape's wand moved along the cuts as he sang, and the blood slowed.
+Harry had never heard the spell. It had no incantation. It was more like singing. Low and slow, rising and falling, like a lullaby, like somebody singing a child to sleep. Snape's wand moved along the cuts as he sang, and the blood slowed.
 
 Harry read Draco.
 
-There was something there. It was very faint. It was like a match, at the end of a very long tunnel, very nearly out. It was like a small girl with silver hair in a lake, a long time ago.
+There was something there. Very faint. Like a match at the end of a very long tunnel, very nearly out. Like a small girl with silver hair in a lake, a long time ago.
 
 Snape sang.
 
-The match did not go out.
+The match didn't go out.
 
-He sang the same thing three times, very low, along every cut, and the cuts closed. They did not heal. They closed, the way a door closes, and stayed closed, red lines on white skin, and the blood stopped, and the match at the end of the tunnel got, very slowly, a little brighter.
+He sang the same thing three times, very low, along every cut, and the cuts closed. They didn't heal. They closed, the way a door closes, and stayed closed, red lines on white skin. The blood stopped, and the match at the end of the tunnel grew, very slowly, a little brighter.
 
 Draco breathed.
 
@@ -38445,29 +38465,29 @@ Then he stood up, and turned round, and looked at Harry.
 
 Harry read him.
 
-He could. That was the first thing. Snape was not closed. He had come through the door too fast to close, and gone down on his knees, and sung, and he had not had the time, or he had not had the strength, and for perhaps three seconds Severus Snape stood in a flooded bathroom with his hands red to the wrist and his mind wide open, and Harry read everything.
+He could. That was the first thing. Snape wasn't closed. He'd come through the door too fast to close, and gone down on his knees, and sung, and he hadn't had the time, or hadn't had the strength. For perhaps three seconds Severus Snape stood in a flooded bathroom with his hands red to the wrist and his mind wide open, and Harry read everything.
 
 There was recognition.
 
-It came first, and it was the largest. Not recognition of Harry. Recognition of the cuts. Of the long straight clean slashes across Draco's face and chest, as though from an invisible blade. Snape knew them. He knew them the way you know your own handwriting. He had made them. He had made the spell. He had sat in a dormitory with green hangings, a youth with a cracked book, and made it up, out of nothing, and written it in a margin, and pressed so hard that the nib tore, and he had never told anybody.
+It came first, and it was the largest. Not recognition of Harry. Recognition of the cuts. The long straight clean slashes across Draco's face and chest, as though from an invisible blade. Snape knew them. He knew them the way you know your own handwriting. He'd made them. He'd made the spell. He'd sat in a dormitory with green hangings, a youth with a cracked book, and made it up out of nothing, and written it in a margin, and pressed so hard that the nib tore. And he'd never told anybody.
 
 *For enemies.*
 
 Then fury.
 
-It came up through the recognition, very fast, and it was unlike the hatred Harry had always felt at Snape's rim. Hotter than that, and newer. The fury of a man who has found somebody going through his drawers. Who has found, in the hands of James Potter's son, a thing that was his, and secret, and made by him alone, at sixteen, in the dark.
+It rose through the recognition, very fast, and it was unlike the hatred Harry had always felt at Snape's rim. Hotter than that, and newer. The fury of a man who's found somebody going through his drawers. Who's found, in the hands of James Potter's son, a thing that was his, and secret, and made by him alone, at sixteen, in the dark.
 
 Harry had been inside Snape's head once, uninvited, and felt the purest thing in it.
 
-Now he had been inside Snape's book.
+Now he'd been inside Snape's book.
 
-And then, under the fury, very quick, very cold, something else. It was calculating. It was putting things together. It was working out, very fast, where the book was, and how Harry had got it, and what else was in the margins, and what Harry had read, and what Harry might, from reading it, have understood.
+And then, beneath the fury, very quick, very cold, something else. Calculating. Putting things together. Working out, very fast, where the book was, and how Harry had got it, and what else was in the margins, and what Harry had read, and what Harry might, from reading it, have understood.
 
 Then it closed.
 
-It closed all at once, the way a door slams in a wind, and Snape was smooth and complete again, the wall he had always been, and Harry could read nothing at all.
+It closed all at once, the way a door slams in a wind, and Snape was smooth and complete again, the wall he'd always been, and Harry could read nothing at all.
 
-"Where," said Snape, very softly, "did you learn that?"
+"Where," Snape asked, very softly, "did you learn that?"
 
 * * *
 
@@ -38479,9 +38499,9 @@ It closed all at once, the way a door slams in a wind, and Snape was smooth and 
 
 "Liar."
 
-Harry did not say anything.
+Harry held his ground.
 
-Snape looked at him across the flooded bathroom. The water was still coming out of the broken pipe. Draco was lying in it, breathing, very white, with the red lines across his face. Myrtle had stopped screaming and was hovering by the window with her hands over her mouth.
+Snape looked at him across the flooded bathroom. Water was still pouring out of the broken pipe. Draco lay in it, breathing, very white, with the red lines across his face. Myrtle had stopped screaming and was hovering by the window with her hands over her mouth.
 
 "Go to my office," said Snape. "Wait there. Bring me your schoolbooks. *All* of them. Your Potions book first."
 
@@ -38491,15 +38511,15 @@ Snape looked at him across the flooded bathroom. The water was still coming out 
 
 Harry went.
 
-He went out of the bathroom and along the sixth-floor corridor and he did not go to the dungeons. He went up. He went up to the seventh floor, to the blank stretch of wall opposite Barnabas the Barmy, and walked past it three times, thinking *a place to hide something, a place to hide something, a place to hide something*, and a tall dark door with iron studs appeared, and he went in.
+He went out of the bathroom and along the sixth-floor corridor, and he didn't go to the dungeons. He went up. He went up to the seventh floor, to the blank stretch of wall opposite Barnabas the Barmy, and walked past it three times, thinking *a place to hide something, a place to hide something, a place to hide something*. A tall dark door studded with iron appeared, and he went in.
 
-The city of hidden things went up into the dark.
+The city of hidden things rose into the dark.
 
-He did not go far. He went down the wide street of junk, past the stuffed troll, and took the first turning, and he did not look at the tall black cabinet standing apart from everything else, and he did not think about it. He found a cupboard. It was old and blistered and had a cracked mirror on the door, and he opened it and pushed the battered Potions book in at the back, behind a cage with a skeleton of something in it, and shut the door.
+He didn't go far. He went down the wide street of junk, past the stuffed troll, and took the first turning. He didn't look at the tall black cabinet standing apart from everything else, and he didn't think about it. He found a cupboard, old and blistered with a cracked mirror on the door. He opened it and pushed the battered Potions book in at the back, behind a cage with the skeleton of something in it, and shut the door.
 
 He looked round for something to mark the place.
 
-There was a bust on a pile of broken chairs, at the end of the turning. It was the bust of an ugly old warlock, pitted and stained, with a wig on, and nothing on top of the wig.
+There was a bust on a pile of broken chairs at the end of the turning. The bust of an ugly old warlock, pitted and stained, with a wig on, and nothing on top of the wig.
 
 Harry looked at it for a moment.
 
@@ -38507,7 +38527,7 @@ Then he went back down the street and out of the door and down to the dungeons, 
 
 * * *
 
-Snape took it from him in his office, and opened it, and looked at the first page, and the second, and the third. There was nothing in the margins. There was nothing anywhere. The spine had never been cracked.
+Snape took it from him in his office and opened it and looked at the first page, and the second, and the third. There was nothing in the margins. There was nothing anywhere. The spine had never been cracked.
 
 He looked at it for a long time.
 
@@ -38517,33 +38537,37 @@ He looked at it for a long time.
 
 Snape looked up at him.
 
-Harry could not read him. But he did not need to. He knew Snape knew he was lying. He knew Snape knew exactly what book Harry had been using all year, because Snape had seen the cuts on Draco's face, and there was only one book in the world they could have come from.
+Harry couldn't read him. But he didn't need to. He knew Snape knew he was lying. He knew Snape knew exactly what book Harry had been using all year, because Snape had seen the cuts on Draco's face, and there was only one book in the world they could have come from.
 
-And Snape could not say so.
+And Snape couldn't say so.
 
-He could not say *where is my book* without saying *it is my book*. He could not say *I know that spell* without saying *I made it*. He could not ask Harry what else he had read in the margins without telling Harry there was something else to read.
+He couldn't say *where is my book* without saying *it is my book*. He couldn't say *I know that spell* without saying *I made it*. He couldn't ask Harry what else he'd read in the margins without telling Harry there was something else to read.
 
 Harry watched him not say it.
 
 He thought about a youth hanging upside down over a lawn by a lake, with the whole school laughing.
 
-He did not feel anything he wanted to feel.
+He didn't feel anything he wanted to feel.
 
-"Detention," said Snape. "Every Tuesday and every Thursday. Until the end of term. Seven o'clock. Here." He shut the book. "And if I ever, *ever*, see you use that spell again, Potter, on anybody, for any reason, I will see to it personally that you are expelled from this school and that your wand is snapped, and I do not care in the least what the Headmaster says about it."
+"Detention," said Snape. "Every Tuesday and every Thursday. Until the end of term. Seven o'clock. Here."
+
+He shut the book.
+
+"And if I ever, *ever*, see you use that spell again, Potter, on anybody, for any reason, I will see to it personally that you are expelled from this school and that your wand is snapped, and I do not care in the least what the Headmaster says about it."
 
 "Yes, sir."
 
 "Get out."
 
-Harry went to the door. He stopped there, with his hand on it.
+Harry went to the door. He stopped there with his hand on it.
 
-He thought about it. He thought about it the way he always thought, very fast, all the moves laid out, and he knew it was cruel, and he knew it would tell him something, and he did it anyway.
+He thought about it. He thought the way he always thought, very fast, all the moves laid out. He knew it was cruel, and he knew it would tell him something, and he did it anyway.
 
 "Sir," he said. "Who was the Half-Blood Prince?"
 
 Snape's quill stopped.
 
-It stopped for perhaps half a second, on the parchment, and a small black blot spread out from the nib. And at the rim of the smooth closed wall, where something always leaked, something leaked. It was very small and very cold and very old, and it was the feeling of a man hearing, in a dungeon office, from the mouth of James Potter's son, a name he had given himself at fifteen and never once said aloud to another living person.
+It stopped for perhaps half a second on the parchment, and a small black blot spread out from the nib. And at the rim of the smooth closed wall, where something always leaked, something leaked. Very small and very cold and very old. The feeling of a man hearing, in a dungeon office, from the mouth of James Potter's son, a name he'd given himself at fifteen and never once said aloud to another living person.
 
 Then the wall was smooth again.
 
@@ -38553,21 +38577,25 @@ Then the wall was smooth again.
 
 "Then go."
 
-Harry did not go.
+Harry didn't go.
 
-"Is he going to be all right?" he said.
+"Is he going to be all right?" he asked.
 
-Snape did not look up.
+Snape didn't look up.
 
-"Mr Malfoy will live," he said. "He will have scars. He will be in the hospital wing for a week. If I had been thirty seconds later, he would not." He was writing something. "Get out, Potter."
+"Mr Malfoy will live," he said. "He will have scars. He will be in the hospital wing for a week. If I had been thirty seconds later, he would not."
+
+He was writing something.
+
+"Get out, Potter."
 
 Harry got out.
 
 * * *
 
-Millicent told Evelyn at a quarter to nine, in the library, at the back table in the corner where Madam Pince could not see her eating toffees.
+Millicent told Evelyn at a quarter to nine, in the library, at the back table in the corner where Madam Pince couldn't see her eating toffees.
 
-She told it very badly. She told it the way Millicent told everything, in short pieces, without any order. She said Malfoy was in the hospital wing. She said there was blood all over a bathroom on the sixth floor, there was water everywhere, Myrtle was telling everybody. She said Snape had done something. She said Potter had done it. Potter had done something to Malfoy with a spell nobody had ever heard of and Malfoy had nearly died.
+She told it very badly. She told it the way Millicent told everything, in short pieces, without any order. She said Malfoy was in the hospital wing. She said there was blood all over a bathroom on the sixth floor, there was water everywhere, Myrtle was telling everybody. She said Snape had done something. She said Potter had done it. Potter had done something to Malfoy with a spell nobody had ever heard of, and Malfoy had nearly died.
 
 "Nearly," said Evelyn.
 
@@ -38579,41 +38607,41 @@ She told it very badly. She told it the way Millicent told everything, in short 
 
 Evelyn put her book down.
 
-She put it down very carefully, at the page she had been reading, square to the edge of the table. She looked at it for a moment. Then she stood up.
+She put it down very carefully, at the page she'd been reading, square to the edge of the table. She looked at it for a moment. Then she stood up.
 
 "Where is he?"
 
 "Snape had him. Then he went. Nobody knows."
 
-Evelyn did not ask anything else. She went out of the library.
+Evelyn asked nothing else. She went out of the library.
 
-She did not hurry. She did not run. She walked out of the library at her ordinary pace and down the corridor and down the stairs, and she noted, as she went, that her hands were not quite steady, and she put them in the pockets of her cardigan, where the watch was, and kept them there.
+She didn't hurry. She didn't run. She walked out of the library at her ordinary pace and down the corridor and down the stairs. As she went, she noted that her hands weren't quite steady. She put them in the pockets of her cardigan, where the watch was, and kept them there.
 
-She knew where he would be.
+She knew where he'd be.
 
-She did not need to read anybody to know it. She had known him six years. When something had happened, he went where nobody would find him and sat with his back to a wall and did not read anything, and waited to be found by the one person who could not be read.
+She didn't need to read anybody to know it. She'd known him six years. When something had happened, he went where nobody would find him and sat with his back to a wall and didn't read anything, and waited to be found by the one person who couldn't be read.
 
-He was in the fourth-floor classroom, sitting on the floor under the window with his back against the wall, in the dark, with his knees drawn up and his arms round them.
+He was in the fourth-floor classroom, sitting on the floor beneath the window with his back against the wall, in the dark, his knees drawn up and his arms round them.
 
-He did not look up when she came in.
+He didn't look up when she came in.
 
-She did not light the lamp.
+She didn't light the lamp.
 
-She stood in the doorway and looked at him in the light from the corridor, a dark shape on the floor under the window, very still. He had blood on his shoes. She could see it. Dark, at the toes, where the water had gone over them.
+She stood in the doorway and looked at him in the light from the corridor, a dark shape on the floor beneath the window, very still. He had blood on his shoes. She could see it. Dark, at the toes, where the water had gone over them.
 
 She noted it.
 
 "Millicent told me," she said.
 
-He did not answer.
+He didn't answer.
 
-She did not ask him if he was all right. She did not ask him what had happened. She did not ask him why, or how, or where he had learned it. She knew that he would tell her or he would not, and that asking would make no difference to which.
+She didn't ask him if he was all right. She didn't ask him what had happened. She didn't ask him why, or how, or where he'd learned it. She knew he'd tell her or he wouldn't, and that asking would make no difference to which.
 
-She sat down on the floor beside him, with her back against the wall, a foot away, and drew her knees up.
+She sat down on the floor beside him, her back against the wall, a foot away, and drew her knees up.
 
 They sat there in the dark for an hour and eleven minutes.
 
-"He was crying," said Harry, in the end. "In the bathroom. With Myrtle. I went up to talk to him."
+"He was crying," Harry said in the end. "In the bathroom. With Myrtle. I went up to talk to him."
 
 "To say what?"
 
@@ -38621,7 +38649,11 @@ They sat there in the dark for an hour and eleven minutes.
 
 "No," said Evelyn. "I don't suppose you did."
 
-"He started a Cruciatus. I heard the first bit. *Cruci.* And I…" He stopped. "There's a book. My Potions book. It's not mine. It's old. Somebody wrote in it. All over it. Spells in the margins. One of them said *for enemies*, and it didn't say what it did, and I used it."
+"He started a Cruciatus. I heard the first bit. *Cruci.* And I…"
+
+He stopped.
+
+"There's a book. My Potions book. It's not mine. It's old. Somebody wrote in it. All over it. Spells in the margins. One of them said *for enemies*, and it didn't say what it did, and I used it."
 
 "Without knowing what it did."
 
@@ -38629,21 +38661,31 @@ They sat there in the dark for an hour and eleven minutes.
 
 "Where's the book now?"
 
-"Hidden. In the room on the seventh floor. In a cupboard, behind a cage with a skeleton in it, down from the bust with the wig." He laughed, very short, with nothing in it. "Snape wanted it. He knew. He knew the spell, Evelyn. I read him. He knew it like his own handwriting."
+"Hidden. In the room on the seventh floor. In a cupboard, behind a cage with a skeleton in it, down from the bust with the wig."
+
+He laughed, very short, with nothing in it.
+
+"Snape wanted it. He knew. He knew the spell, Evelyn. I read him. He knew it like his own handwriting."
 
 Evelyn was quiet for a moment.
 
 "Then it is his handwriting," she said.
 
-Harry did not answer that. She could feel him not answer it, the way she could feel the cold coming off the window.
+Harry didn't answer that. She could feel him not answer it, the way she could feel the cold coming off the window.
 
 "Snape sang," he said. "Over him. On his knees in the water. Like a lullaby. And the cuts closed."
 
-"I read him go," said Harry. "Malfoy. I read him going. Like Cedric. And I didn't do anything. I stood there."
+He paused.
 
-Evelyn did not say anything.
+"I read him go. Malfoy. I read him going. Like Cedric. And I didn't do anything. I stood there."
 
-"I didn't decide," said Harry. "I want you to know that. I didn't decide to do it. It was just there." He was looking at the dark. "I don't know if that's better or worse."
+Evelyn let him go on.
+
+"I didn't decide," said Harry. "I want you to know that. I didn't decide to do it. It was just there."
+
+He was looking at the dark.
+
+"I don't know if that's better or worse."
 
 "Worse," said Evelyn.
 
@@ -38653,43 +38695,47 @@ He turned his head and looked at her.
 
 He looked at her for a long moment in the dark.
 
-Then he looked away again, at the floor, and did not say anything else. And after a while she got up, and said "Breakfast," which was what she always said, and he got up too, and they went down to the dungeons together, and at the stone wall she said the password, and they went in, and she went up to the girls' dormitory and he went up to the boys'.
+Then he looked away again, at the floor, and said nothing else. After a while she got up.
+
+"Breakfast," she said, which was what she always said.
+
+He got up too, and they went down to the dungeons together. At the stone wall she said the password, and they went in, and she went up to the girls' dormitory and he went up to the boys'.
 
 * * *
 
-She did not sleep.
+She didn't sleep.
 
-She lay on her back in her four-poster in the seventh-year girls' dormitory, under the lake, with the green light coming through the windows and the water making its noise against the glass, and she looked at the canopy over her bed, and she did not sleep.
+She lay on her back in her four-poster in the seventh-year girls' dormitory, beneath the lake, with the green light coming through the windows and the water making its noise against the glass. She looked at the canopy over her bed, and she didn't sleep.
 
 At twenty past two she sat up and lit her wand and took the notebook out of the drawer of her bedside table.
 
-It was the notebook she had kept since she was eleven. Not the same one. She was on the fourteenth. They were all the same kind, small and black with a ribbon, from a stationer's in Ludlow, and they were all full of the same kind of thing. Times. Dates. Numbers. Things she had noticed. *Varga looked at me four times at the feast, the same each time. Moody's wand was in the hedge for half an hour. He has not looked at the door once.*
+It was the notebook she'd kept since she was eleven. Not the same one. She was on the fourteenth. They were all the same kind, small and black with a ribbon, from a stationer's in Ludlow, and they were all full of the same kind of thing. Times. Dates. Numbers. Things she'd noticed. *Varga looked at me four times at the feast, the same each time. Moody's wand was in the hedge for half an hour. He has not looked at the door once.*
 
-She had never once written a feeling in it.
+She'd never once written a feeling in it.
 
-She had never needed to. She had been trained since she was five years old to keep the door closed, and she kept it closed, and the notebook was for the things outside the door. Facts. Observations. What other people did and said and when.
+She'd never needed to. She'd been trained since she was five years old to keep the door closed, and she kept it closed, and the notebook was for the things outside the door. Facts. Observations. What other people did and said, and when.
 
 She opened it to a clean page.
 
 She wrote the date. *Wednesday 12 February 1997.* She wrote the time. *2.21 a.m.*
 
-Then she sat for a long time with the pen over the page.
+Then she sat for a long time with the pen poised over the page.
 
-She thought about blood on the toes of his shoes. She thought about *I read him go, and I didn't do anything*. She thought about a boy who had walked into Madam Malkin's at eleven and read every person in the shop, and who had never in six years done a thing to anybody that he had not decided to do.
+She thought about blood on the toes of his shoes. She thought about *I read him go, and I didn't do anything*. She thought about a boy who'd walked into Madam Malkin's at eleven and read every person in the shop, and who'd never in six years done a thing to anybody he hadn't decided to do.
 
 Until today.
 
-She thought about a man in a tower in Austria with frost on the inside of the window, who had once said to her, quite lightly, that all Illusionists were lonely, and that the last one had gone mad.
+She thought about a man in a tower in Austria with frost on the inside of the window, who'd once told her, quite lightly, that all Illusionists were lonely, and that the last one had gone mad.
 
 She wrote it down.
 
-She wrote it the way she wrote everything, in small exact upright letters, quite straight across the page, as a fact. It was a fact. She had checked. She had checked the way she would have checked a date, or a sum, or a footnote, and it was true, and so she wrote it.
+She wrote it the way she wrote everything, in small exact upright letters, quite straight across the page, as a fact. It was a fact. She'd checked. She'd checked it the way she'd have checked a date, or a sum, or a footnote, and it was true, and so she wrote it.
 
 *I am frightened for Potter.*
 
 She looked at it.
 
-Then she underlined it, once, and closed the notebook, and put it back in the drawer, and put out her wand, and lay down in the dark, and did not sleep at all.
+Then she underlined it, once, and closed the notebook, and put it back in the drawer, and put out her wand, and lay down in the dark, and didn't sleep at all.
 
 <->
 
