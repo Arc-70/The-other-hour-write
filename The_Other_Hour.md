@@ -41447,7 +41447,7 @@ He saw him sitting on the low wall by the greenhouse gate, thirty yards off, wat
 
 They looked at each other across the empty courtyard.
 
-Snape's face didn't change. He looked at Harry for a long moment with nothing in his eyes, and Harry knew that he knew. He knew Harry had been reading him. He knew exactly what Harry had read. Harry had been inside him twice now, once in a playground and once in a courtyard, and both times he'd found the thing Severus Snape would rather have died than have anyone find.
+Snape's face didn't change. He looked at Harry with nothing in his eyes, and Harry knew that he knew. He knew Harry had been reading him. He knew exactly what Harry had read. Harry had been inside him twice now, once in a playground and once in a courtyard, and both times he'd found the thing Severus Snape would rather have died than have anyone find.
 
 Snape turned and went on across the courtyard, very fast, and out through the gate by the greenhouses, and didn't look back.
 
@@ -43843,7 +43843,7 @@ He was still looking at the ring.
 
 Voldemort looked up.
 
-He looked at the old man on the bed for a long moment, wand still raised, and Grindelwald saw quite clearly in the red eyes that there was nothing more he wanted from the room. Nothing. He'd come for one thing and been given another, much larger, and he was finished here.
+He looked at the old man on the bed, wand still raised, and Grindelwald saw quite clearly in the red eyes that there was nothing more he wanted from the room. Nothing. He'd come for one thing and been given another, much larger, and he was finished here.
 
 "Thank you," said Lord Voldemort.
 
@@ -44393,7 +44393,7 @@ They buried him in the morning at the top of the cliff, at the end of Bill's gar
 
 Bill wanted to do it with magic. He came out at seven with his wand and said he'd dig it, it would take a minute, and Evelyn said, "No."
 
-She said nothing else. Bill looked at her for a long moment in the grey dawn, the wind blowing his long red hair across his face, and then he went back into the cottage and came out again with a spade from the shed and gave it to her, and went in again.
+She said nothing else. Bill looked at her in the grey dawn, the wind blowing his long red hair across his face, and then he went back into the cottage and came out again with a spade from the shed and gave it to her, and went in again.
 
 She dug.
 
@@ -44493,7 +44493,7 @@ He didn't say it.
 
 "I met somebody very like you once," he said instead. "A long time ago. He kept goats."
 
-Aberforth looked at him for a long moment.
+Aberforth studied him.
 
 "Lot of people keep goats," he said.
 
@@ -45037,7 +45037,7 @@ Ron had his wand out. It was pointing at Harry's face across the table, and Ron'
 
 "I gave you the Cannons. In the eleventh row. You stood on your seat."
 
-Ron stared at him for a long moment.
+Ron stared at him.
 
 Then he slowly lowered the wand.
 
@@ -45419,7 +45419,7 @@ Albus was asleep, hands folded, spectacles on the end of his nose. He'd been asl
 
 His voice was quite flat.
 
-The portrait didn't wake. Its chest rose and fell very slightly under the painted midnight-blue robes. Snape watched it for a long moment. He didn't know whether it was asleep, or pretending, or whether a portrait could pretend. He'd never asked.
+The portrait didn't wake. Its chest rose and fell very slightly under the painted midnight-blue robes. Snape watched it. He didn't know whether it was asleep, or pretending, or whether a portrait could pretend. He'd never asked.
 
 He didn't want to know.
 
@@ -45541,7 +45541,7 @@ Harry put his hand on the inside pocket of his coat. He didn't take the Cloak ou
 
 Snape looked at him.
 
-He looked at him for a long moment across the candle from the window. Harry reached for him out of habit and found the door, shut, and the weight on the other side of it. Nothing came through. Nothing at all.
+He looked at him across the candle from the window. Harry reached for him out of habit and found the door, shut, and the weight on the other side of it. Nothing came through. Nothing at all.
 
 "Sit down," said Snape.
 
@@ -45943,7 +45943,7 @@ He meant it. He said it the way he'd have said it to Ron for passing the salt.
 
 Evelyn looked at him.
 
-She looked at him for a long moment from the door, shaking. He waited. He didn't mind waiting. He had nowhere in particular to be.
+She looked at him from the door, shaking. He waited. He didn't mind waiting. He had nowhere in particular to be.
 
 Then she said, in a voice he'd never heard her use, very low, not to him, "*Oh*," and something in her face gave way.
 
@@ -46725,7 +46725,7 @@ He asked first. She noted that on the stairs. He sat on the edge of the camp bed
 
 "No. If he sees you, he has to bring you in. He won't have a choice. If he sees me…" She stopped. "I don't know what he'll do if he sees me. I'd like to find out."
 
-Potter looked at her in the dark for a long moment.
+Potter looked at her in the dark.
 
 "I'll be listening," he said.
 
@@ -47235,7 +47235,7 @@ Draco was waiting.
 
 "No," said Harry.
 
-Draco looked at him for a long moment. Then he looked down at the pale wand in his hand, his mother's, and turned it over, and looked at it as though he'd never seen it before.
+Draco held his gaze. Then he looked down at the pale wand in his hand, his mother's, and turned it over, and looked at it as though he'd never seen it before.
 
 "Your father's outside," said Harry. "With the others."
 
@@ -47597,7 +47597,7 @@ He'd never been able to read Lucan. He'd never tried. And he'd promised himself 
 
 "I don't know either," said Harry.
 
-She looked at him for a long moment.
+She looked at him.
 
 "No," said Evelyn. "Thank you."
 
@@ -47885,7 +47885,7 @@ He said it quite softly. He was looking at Harry across the empty clearing, and 
 
 "It was a cloak," said Harry. "And he held it."
 
-Voldemort looked at him for a long moment. Then he smiled. It was a very small smile, the most courteous thing Harry had ever seen on a face, and it didn't reach anywhere.
+Voldemort looked at him. Then he smiled. It was a very small smile, the most courteous thing Harry had ever seen on a face, and it didn't reach anywhere.
 
 "I could kill you from here," he said. "You know that. This wand would do it without my lifting it. It has done finer work than you."
 
@@ -48275,7 +48275,7 @@ He reached again.
 
 Neville carried Millicent.
 
-Nobody asked him to. Nobody said anything. Harry was sitting up on the ferns with Evelyn's hands still round his, and Neville put his wand away in his pocket and went down on one knee beside Millicent and got his arms under her, under her knees and her shoulders, the way you'd lift somebody who'd fallen asleep in a chair, and stood up.
+Nobody asked him to. Harry was sitting up on the ferns with Evelyn's hands still round his, and Neville put his wand away in his pocket and went down on one knee beside Millicent and got his arms under her, under her knees and her shoulders, the way you'd lift somebody who'd fallen asleep in a chair, and stood up.
 
 She was very heavy. She'd always been heavy. She'd been the biggest girl in their year since they were eleven, and Pansy Parkinson had called her a wardrobe for six years, and Millicent had once picked Pansy up by the back of her robes and put her on top of an actual wardrobe in the second-year dormitory and left her there until supper.
 
@@ -48421,7 +48421,7 @@ Mrs Weasley was sitting on the floor with her back to the wall and Fred's head i
 
 Harry stopped.
 
-Mrs Weasley looked up at him. She looked at him for a long moment, her face swollen and blotched and quite still, and he didn't know what was in it. He didn't know whether it was grief or blame or love or nothing. He'd known what was in Molly Weasley's face at every meal in the Burrow kitchen, and at a wedding, and on a dance floor with Sirius treading on her feet. He didn't know it now.
+Mrs Weasley looked up at him. She looked at him, her face swollen and blotched and quite still, and he didn't know what was in it. He didn't know whether it was grief or blame or love or nothing. He'd known what was in Molly Weasley's face at every meal in the Burrow kitchen, and at a wedding, and on a dance floor with Sirius treading on her feet. He didn't know it now.
 
 "Harry, love," she said.
 
@@ -49431,7 +49431,7 @@ The clocks ticked all round them like rain.
 
 "For what?" said Evelyn.
 
-Ashdown looked at the watch for a long moment.
+Ashdown looked at the watch.
 
 "I couldn't say," he said.
 
@@ -49511,7 +49511,7 @@ He sat at the little table in the kitchen the size of a wardrobe, the window ful
 
 He hadn't meant to say it aloud. It came out.
 
-Hermione looked at him for a long moment.
+Hermione considered him.
 
 "I think," she said carefully, "that you should probably ask her that."
 
@@ -49789,7 +49789,7 @@ Then she let go of his lapel and smoothed it down flat with two fingers, the way
 
 There were seventeen people at the Burrow for Sunday lunch on the twelfth of December, and the kitchen had been built for eight.
 
-Harry counted them on the way in. He did not mean to. He had picked it up from Evelyn, the way you pick up an accent, and he found himself doing it now in every room he walked into, quite automatically, the way he had once read every room he walked into, and he had stopped minding. Arthur. Molly. Bill and Fleur. Charlie, home from Romania for Christmas with a new burn up one forearm that he kept showing people. Percy, in a hat. George. Ginny. Ron and Hermione. Great-Aunt Muriel, in a hat that was larger than Percy's and had a bird on it. Kingsley, who had come for an hour and stayed for three, and who was Minister for Magic and did not seem to mind sitting on an upturned crate. Neville and Luna, who had been asked at the last minute because Molly had heard that Neville's grandmother was in Bath with her sister and that Luna's father was in Sweden looking for something. Hagrid's dog, Fang, who had come with Neville, and who now lived with Neville in a cottage near Hogsmeade, and who went everywhere he went and lay down under every table.
+Harry counted them on the way in. He didn't mean to. He'd picked it up from Evelyn, the way you pick up an accent, and he found himself doing it now in every room he walked into, quite automatically, the way he'd once read every room he walked into, and he'd stopped minding. Arthur. Molly. Bill and Fleur. Charlie, home from Romania for Christmas with a new burn up one forearm that he kept showing people. Percy, in a hat. George. Ginny. Ron and Hermione. Great-Aunt Muriel, in a hat larger than Percy's with a bird on it. Kingsley, who'd come for an hour and stayed for three, and who was Minister for Magic and didn't seem to mind sitting on an upturned crate. Neville and Luna, asked at the last minute because Molly had heard that Neville's grandmother was in Bath with her sister and Luna's father was in Sweden looking for something. Hagrid's dog, Fang, who'd come with Neville and now lived with him in a cottage near Hogsmeade, and went everywhere he went, and lay down under every table.
 
 Harry. Evelyn.
 
@@ -49817,7 +49817,7 @@ Seventeen, if you counted Fang. Evelyn did.
 
 "The *Prophet*," said Evelyn. "June of last year. Page one. I've been told I was blurred."
 
-Muriel looked at her for a long moment through the lorgnettes.
+Muriel examined her through the lorgnettes.
 
 "Hm," she said. "You'll do."
 
@@ -49825,19 +49825,19 @@ Muriel looked at her for a long moment through the lorgnettes.
 
 It was very loud.
 
-It was the loudest room Harry had been in for months. There were sixteen people in a kitchen built for eight, at a table built for ten with a second smaller table jammed against the end of it at a slightly different height, so that everyone at the join had to hold their plates level by hand, and everybody was talking at once. Charlie was telling Neville about a Hungarian Horntail with an ear infection. Fleur was telling Molly, very patiently, for the third time, that she did not want any more gravy. Percy was explaining to Luna why his hat was an important hat, and Luna was listening with great interest, and asking questions that Percy did not seem to have been asked before and was finding very difficult. George was telling Ginny something under his breath that was making her laugh into her potatoes. Arthur was still looking at the plug.
+It was the loudest room Harry had been in for months. There were sixteen people in a kitchen built for eight, at a table built for ten with a second smaller table jammed against its end at a slightly different height, so that everyone at the join had to hold their plates level by hand, and everybody was talking at once. Charlie was telling Neville about a Hungarian Horntail with an ear infection. Fleur was telling Molly very patiently, for the third time, that she didn't want any more gravy. Percy was explaining to Luna why his hat was an important hat, and Luna was listening with great interest and asking questions Percy didn't seem to have been asked before and was finding very difficult. George was telling Ginny something under his breath that was making her laugh into her potatoes. Arthur was still looking at the plug.
 
 Harry could hear all of it.
 
-He sat in the middle of the noise at the join between the two tables with his plate held level in one hand and listened to it, and it was a noise. It was voices. It was sixteen people and a dog. He could not feel any of it. He could not have told you who in that kitchen was happy and who was pretending, who was tired, who was thinking about something else, who had a quarrel with whom. Two years ago he would have known all of it before he got his coat off. He would have known it the way you know the weather.
+He sat in the middle of the noise at the join between the two tables with his plate held level in one hand and listened, and it was a noise. It was voices. It was sixteen people and a dog. He couldn't feel any of it. He couldn't have told you who in that kitchen was happy and who was pretending, who was tired, who was thinking about something else, who had a quarrel with whom. Two years ago he'd have known all of it before he got his coat off. He'd have known it the way you know the weather.
 
-He did not know any of it now.
+He didn't know any of it now.
 
-He found that he could still hear it. That was the thing. He had not known, before, that you could hear it. He had always been too busy feeling it. And it turned out that a family at Sunday lunch, heard from the outside, without knowing anything at all about what anyone in it felt, sounded almost exactly the same as it had always felt. Loud and warm and hopeless and much too crowded. Everybody talking and nobody listening and everybody listening anyway.
+He found he could still hear it. That was the thing. He hadn't known before that you could hear it. He'd always been too busy feeling it. And it turned out that a family at Sunday lunch, heard from the outside, without knowing anything at all about what anyone in it felt, sounded almost exactly the same as it had always felt. Loud and warm and hopeless and much too crowded. Everybody talking and nobody listening and everybody listening anyway.
 
 He sat in it with his plate level and listened.
 
-"Harry," said Molly, from the stove. "*Harry*. More potatoes."
+"Harry," said Molly from the stove. "*Harry*. More potatoes."
 
 "I'm all right, thank you, Mrs Weasley."
 
@@ -49847,7 +49847,7 @@ He sat in it with his plate level and listened.
 
 "Doesn't he." Molly looked at her across the kitchen. "Well. You'll have to train him."
 
-There was a very short pause at the table. It was perhaps a second long. It went round the table quite fast, and Harry saw Ron's face change, and Hermione's, and Ginny's, and George's, and he did not need to read any of them to know what had just happened.
+There was a very short pause at the table. It was perhaps a second long. It went round the table quite fast, and Harry saw Ron's face change, and Hermione's, and Ginny's, and George's, and he didn't need to read any of them to know what had just happened.
 
 "*Train* him," said Ron.
 
@@ -49869,7 +49869,7 @@ There was a very short pause at the table. It was perhaps a second long. It went
 
 The kitchen went very quiet.
 
-Not silent. The kind of quiet that sixteen people make when every one of them has stopped talking at once to listen to something more interesting. Charlie stopped in the middle of the Horntail. Percy stopped in the middle of the hat. Even Muriel lowered her lorgnettes.
+Not silent. The kind of quiet sixteen people make when every one of them has stopped talking at once to listen to something more interesting. Charlie stopped in the middle of the Horntail. Percy stopped in the middle of the hat. Even Muriel lowered her lorgnettes.
 
 "*Percentages?*" said Ginny.
 
@@ -49879,7 +49879,7 @@ Not silent. The kind of quiet that sixteen people make when every one of them ha
 
 Evelyn put her knife and fork down.
 
-She did it quite carefully, side by side on the plate, at twenty past four. She looked at Ron across the table with her plain quiet face that told nobody anything, and she said, in the voice in which she had once corrected a Dark Lord's lieutenant across a courtroom on a point of procedure, "Yes."
+She did it quite carefully, side by side on the plate, at twenty past four. She looked at Ron across the table with her plain quiet face that told nobody anything, and she said, in the voice in which she'd once corrected a Dark Lord's lieutenant across a courtroom on a point of procedure, "Yes."
 
 "What were they?"
 
@@ -49895,15 +49895,15 @@ She did it quite carefully, side by side on the plate, at twenty past four. She 
 
 "Ron," said Hermione, "*eat your lunch*."
 
-The kitchen came back. All of it at once, louder than before, everybody talking over everybody else, Charlie and Percy and Fleur and Ginny and Muriel saying that in her day nobody did anything in percentages and look where it had got them, and George leaning across the table to shake Evelyn's hand very solemnly and say that he had always known she had it in her, and Molly at the stove with the potato spoon in one hand, crying.
+The kitchen came back. All of it at once, louder than before, everybody talking over everybody else, Charlie and Percy and Fleur and Ginny, and Muriel saying that in her day nobody did anything in percentages and look where it had got them, and George leaning across the table to shake Evelyn's hand very solemnly and say he'd always known she had it in her, and Molly at the stove with the potato spoon in one hand, crying.
 
-She did not cry for long. She cried into the steam from the potatoes, quite quickly, and wiped her face on her apron, and said *oh, don't mind me, I'm being silly*, and Arthur got up from the plug and went over and put his arm round her, and she said *I'm being silly, Arthur*, and he said *yes, love*, and kept his arm there.
+She didn't cry for long. She cried into the steam from the potatoes, quite quickly, and wiped her face on her apron and said *oh, don't mind me, I'm being silly*, and Arthur got up from the plug and went over and put his arm round her, and she said *I'm being silly, Arthur*, and he said *yes, love*, and kept his arm there.
 
-Harry did not know why she was crying.
+Harry didn't know why she was crying.
 
-He thought he could guess. He found that he did not want to guess. He wanted to know, and the only way to know was to ask, so later, when she was at the sink with her sleeves rolled up and nobody else was near, he asked.
+He thought he could guess. He found he didn't want to guess. He wanted to know, and the only way to know was to ask, so later, when she was at the sink with her sleeves rolled up and nobody else was near, he asked.
 
-Mrs Weasley looked at him for a moment with her hands in the water.
+Mrs Weasley looked at him a moment with her hands in the water.
 
 "Because you're happy, love," she said. "That's all. Because I'd stopped thinking you ever would be." She went back to the dishes. "Don't you dare tell Ron I said that."
 
@@ -49911,39 +49911,39 @@ Mrs Weasley looked at him for a moment with her hands in the water.
 
 They had pudding at a quarter to five.
 
-It was a treacle sponge, and there was custard, and there were sixteen bowls, and Fleur did not want any and had some anyway. The light was going outside. It went early in December. The kitchen windows were blue and then dark blue and then black, with the lamps reflected in them, and somebody put the wireless on low in the corner, and it was playing something by Steps, and Ginny groaned and turned it to something else.
+It was a treacle sponge, with custard, and there were sixteen bowls, and Fleur didn't want any and had some anyway. The light was going outside. It went early in December. The kitchen windows turned blue and then dark blue and then black, with the lamps reflected in them, and somebody put the wireless on low in the corner, and it was playing something by Steps, and Ginny groaned and turned it to something else.
 
-And George put his spoon down, and said, quite clearly, to the whole table, "Fred would have hated this pudding."
+And George put down his spoon and said, quite clearly, to the whole table, "Fred would have hated this pudding."
 
-Nobody said anything.
+The table went still.
 
-It was the first time Harry had heard anybody say the name at that table since May of last year. He knew that without feeling anything. He saw it go round the table, on every face, all at once, the way you see wind go across a field of barley, and then he saw every face try not to look at Molly.
+It was the first time Harry had heard anybody say the name at that table since May of last year. He knew that without feeling anything. He saw it go round the table on every face at once, the way you see wind cross a field of barley, and then he saw every face try not to look at Molly.
 
-George did not try not to look at her. He looked straight at her.
+George didn't try not to look at her. He looked straight at her.
 
 "He would," said George. "He always hated treacle sponge. He said it was like eating a wet carpet. He said it every Christmas from when he was seven." He picked his spoon up again. "I'm only saying. Somebody ought to. He'd have said it by now. He'd have said it about ten minutes ago, and you'd have hit him with the ladle, Mum, and he'd have ducked, and it'd have got Percy."
 
 Percy looked at his pudding.
 
-"It usually got me," he said, after a moment.
+"It usually got me," he said after a moment.
 
 "It always got you. Every year." George looked round the table at all of them. "That's all. I just wanted to say it. Out loud. Once. So it's been said." He took a spoonful of treacle sponge and ate it. "It is a bit like a wet carpet, actually, Mum. Sorry."
 
 Molly looked at him across the table for a long time.
 
-Then she picked up the ladle from the custard jug, and leaned across, quite slowly, and tapped Percy on the top of his important hat with it, very gently, once.
+Then she picked up the ladle from the custard jug and leaned across, quite slowly, and tapped Percy on the top of his important hat with it, very gently, once.
 
 Percy closed his eyes.
 
 "Thank you, Mother," he said.
 
-And Ron laughed. It came out of him all at once, like a sneeze, and he put his hand over his mouth, and then George was laughing too, and Ginny, and Charlie, and Bill with his arm round Fleur, and Molly with the ladle still in her hand and her face wet, and the noise came back up into the kitchen, louder than before, all sixteen of them and the dog.
+And Ron laughed. It burst out of him all at once, like a sneeze, and he clapped his hand over his mouth, and then George was laughing too, and Ginny, and Charlie, and Bill with his arm round Fleur, and Molly with the ladle still in her hand and her face wet, and the noise came back up into the kitchen louder than before, all sixteen of them and the dog.
 
 Harry sat at the join between the two tables and heard it.
 
 * * *
 
-George found him in the yard at half past five, by the shed, where Harry had gone to stand in the cold for a minute because the kitchen was very hot and very loud and he had wanted, for a minute, to hear it from outside.
+George found him in the yard at half past five by the shed, where Harry had gone to stand in the cold for a minute because the kitchen was very hot and very loud and he'd wanted, for a minute, to hear it from outside.
 
 It was quite dark. The kitchen window threw a long yellow square across the frozen mud, and the noise came out through the glass, muffled, and the gnomes were asleep somewhere under the hedge, and George came out of the back door with two mugs of tea and gave him one.
 
@@ -49955,17 +49955,17 @@ It was quite dark. The kitchen window threw a long yellow square across the froz
 
 "Looking at me. The way you look at people now. Like you're reading a sign in the fog." George drank some of his tea. "And then you didn't ask. You ask everybody. You asked Percy how he felt about his hat. You've never asked me. Not once. Not since May."
 
-Harry did not say anything.
+Harry didn't answer.
 
 "I know why," said George. "You're frightened of the answer. Everybody is. Mum's frightened of it. Ron's terrified of it. Percy writes me letters about it and then doesn't send them, I find them in his coat." He looked at Harry. "Go on. Ask me."
 
 Harry looked at him.
 
-He did not know what was in his face. It was George's face, and Fred's, the same face, which he had once been able to tell apart in the dark with his eyes shut, from across a Quidditch pitch, because they had never once felt the same thing at the same time in their lives. He could not tell anything now.
+He didn't know what was in his face. It was George's face, and Fred's, the same face, which he'd once been able to tell apart in the dark with his eyes shut, from across a Quidditch pitch, because they'd never once felt the same thing at the same time in their lives. He couldn't tell anything now.
 
 "What are you feeling, George?" said Harry.
 
-George thought about it. He thought about it properly, with his mug in both hands, looking at the yellow square of the window on the frozen mud.
+George thought about it. He thought about it properly, his mug in both hands, looking at the yellow square of the window on the frozen mud.
 
 "Half," he said.
 
@@ -49973,7 +49973,7 @@ Harry waited.
 
 "That's it," said George. "That's the whole of it. I feel half. All the time. When I get up, and when I'm in the shop, and when somebody tells a joke and I've got the answer and there's nobody to say it to. Half." He drank his tea. "It's not as bad as it was. It was less than half, for a bit. Last summer. It was about a quarter. It's half now." He looked at Harry. "That's probably as good as it gets. I've decided I don't mind. Half's quite a lot, if you think about it. It's more than most people get of anybody."
 
-Harry did not say anything.
+Harry didn't speak.
 
 "Thanks for asking," said George.
 
@@ -49983,9 +49983,9 @@ Harry did not say anything.
 
 * * *
 
-It was after the pudding, while the plates were being cleared, that Evelyn and Mrs Weasley found out about each other.
+It was after the pudding, whilst the plates were being cleared, that Evelyn and Mrs Weasley found out about each other.
 
-It was Arthur's fault. He had come back from the shed with a list. It was the list of everything that would be needed for Christmas Day, when there would be, he said, twenty-two people, and he read it out from the doorway in his reading glasses with great pride. Forty-four potatoes, at two each. Three geese. Eleven pounds of sprouts. Seven Christmas puddings, at three people to a pudding, which was what his mother had always said.
+It was Arthur's fault. He'd come back from the shed with a list. It was the list of everything needed for Christmas Day, when there'd be, he said, twenty-two people, and he read it out from the doorway in his reading glasses with great pride. Forty-four potatoes, at two each. Three geese. Eleven pounds of sprouts. Seven Christmas puddings, at three people to a pudding, which was what his mother had always said.
 
 "Seven," said Mrs Weasley.
 
@@ -49997,7 +49997,7 @@ It was Arthur's fault. He had come back from the shed with a list. It was the li
 
 "Not with puddings it doesn't."
 
-"And twenty-two at two potatoes each is forty-four," said Evelyn, from the sink, "but it isn't twenty-two people. You read out the names on Thursday, Mr Weasley, Ron told me, and there were twenty-three. You've forgotten Muriel."
+"And twenty-two at two potatoes each is forty-four," said Evelyn from the sink, "but it isn't twenty-two people. You read out the names on Thursday, Mr Weasley, Ron told me, and there were twenty-three. You've forgotten Muriel."
 
 "Muriel doesn't eat potatoes."
 
@@ -50005,7 +50005,7 @@ It was Arthur's fault. He had come back from the shed with a list. It was the li
 
 There was a silence.
 
-Mrs Weasley turned round from the dresser and looked at Evelyn. Evelyn looked back at her. Harry, at the table, could not have told you what either of them was feeling, and did not need to, because he could see their faces, and the look that went between them was one he had seen a thousand times on Evelyn's face and never once on anyone else's. It was the look of a person who has found a mistake in a column of figures and has just realised that somebody else has found it too.
+Mrs Weasley turned round from the dresser and looked at Evelyn. Evelyn looked back. Harry, at the table, couldn't have told you what either of them was feeling, and didn't need to, because he could see their faces, and the look that passed between them was one he'd seen a thousand times on Evelyn's face and never once on anyone else's. The look of a person who's found a mistake in a column of figures and has just realised somebody else has found it too.
 
 "Twenty-three," said Mrs Weasley slowly.
 
@@ -50021,7 +50021,7 @@ Mrs Weasley turned round from the dresser and looked at Evelyn. Evelyn looked ba
 
 "I'm always right about the puddings."
 
-Mrs Weasley put down the plate she was holding. She came across the kitchen and took the list out of Arthur's hand, and looked at it, and took a pencil from behind her ear, and held both of them out to Evelyn.
+Mrs Weasley put down the plate she was holding. She crossed the kitchen and took the list out of Arthur's hand and looked at it, and took a pencil from behind her ear, and held both out to Evelyn.
 
 "Sprouts," she said.
 
@@ -50037,27 +50037,27 @@ Evelyn looked at the list.
 
 "Three is too few. You'll want four. Or three and a ham."
 
-"*Three and a ham*," said Mrs Weasley, with enormous satisfaction, and turned on her husband. "Did you hear that, Arthur? Three and a ham. I've been saying three and a ham for a fortnight."
+"*Three and a ham*," said Mrs Weasley with enormous satisfaction, and turned on her husband. "Did you hear that, Arthur? Three and a ham. I've been saying three and a ham for a fortnight."
 
 "Yes, Molly."
 
-They went through the whole list. They went through it standing at the kitchen dresser, Molly Weasley and Evelyn Selwyn, side by side, with the pencil going back and forth between them, and they found nine errors in it and corrected all of them, and when they had finished Mrs Weasley folded it in four and put it in her apron pocket and looked at Evelyn for a moment.
+They went through the whole list. They went through it standing at the kitchen dresser, Molly Weasley and Evelyn Selwyn side by side, the pencil going back and forth between them, and they found nine errors and corrected all of them, and when they'd finished Mrs Weasley folded the list in four and put it in her apron pocket and looked at Evelyn for a moment.
 
 "You'll come at Christmas," she said.
 
-It was not a question.
+It wasn't a question.
 
 "I… Yes," said Evelyn. "If that's…"
 
 "Good. I'll want you for the seating plan. Arthur always puts Muriel next to the fire and then she complains she's too hot."
 
-"Then put her by the door," said Evelyn. "And she'll complain of the draught, but she'll be complaining at the right people."
+"Then put her by the door," said Evelyn. "She'll complain of the draught, but she'll be complaining at the right people."
 
-Mrs Weasley looked at her with something very like love, and said, "*Exactly*."
+Mrs Weasley looked at her with something very like love and said, "*Exactly*."
 
 Harry, at the table, met Ron's eye.
 
-"Mate," said Ron, very quietly. "You're doomed."
+"Mate," said Ron very quietly. "You're doomed."
 
 "I know," said Harry.
 
@@ -50065,19 +50065,19 @@ Harry, at the table, met Ron's eye.
 
 They went to Hogsmeade on the way home, because Evelyn wanted to see the bridge.
 
-It was dark. It was very cold, the clear still cold that comes before snow, and the high street was empty except for the lights in the windows and a cat on the Honeydukes sill. The Three Broomsticks was lit and loud, with its new thatch white with frost. They walked down the street past the post office and its new clock, which said twenty to eight, and past Scrivenshaft's, whose bell still stuck, and past the place in the gutter outside it, which was only a gutter, and down to the bottom of the street, to the stream.
+It was dark. It was very cold, the clear still cold that comes before snow, and the high street was empty except for the lights in the windows and a cat on the Honeydukes sill. The Three Broomsticks was lit and loud, its new thatch white with frost. They walked down the street past the post office and its new clock, which said twenty to eight, and past Scrivenshaft's, whose bell still stuck, and past the place in the gutter outside it, which was only a gutter, and down to the bottom of the street, to the stream.
 
 The bridge was finished.
 
-They had finished it on the twentieth of November, Harry and Aberforth, with the last block of the downstream parapet, which had been upside down twice. It was grey, and low, and wide, with two arches, and the stream went under it with a small steady noise, and there was frost on the top of the parapets, and on the inner face of the upstream parapet, cut into the Rannoch stone in plain capitals by a stonemason from Pitlochry who had not charged for it, there were names.
+They'd finished it on the twentieth of November, Harry and Aberforth, with the last block of the downstream parapet, which had been upside down twice. It was grey and low and wide, with two arches, and the stream went under it with a small steady noise, and there was frost along the tops of the parapets. On the inner face of the upstream parapet, cut into the Rannoch stone in plain capitals by a stonemason from Pitlochry who hadn't charged for it, there were names.
 
 Evelyn read them.
 
-She read all of them. Harry had known she would. She stood on the bridge in the dark with her wand lit and held it up to the parapet and read every name, from the first to the last, slowly, the way she read everything: the notices in common rooms that nobody read, the registers in green cloth, the small print at the bottom of a Ministry form. She read them with her lips moving very slightly, as though she were checking each one against a list in her head.
+She read all of them. Harry had known she would. She stood on the bridge in the dark with her wand lit and held it up to the parapet and read every name from the first to the last, slowly, the way she read everything, the notices in common rooms that nobody read, the registers in green cloth, the small print at the bottom of a Ministry form. She read them with her lips moving very slightly, as though checking each against a list in her head.
 
 He stood beside her and let her.
 
-The eleven from the village, first, from the night of the snow. Then the others. The ones from the castle, from the night of the first of May. Every one. Harry did not read them. He knew where each of them was without looking, the way you know where things are in a room you have lived in.
+The eleven from the village first, from the night of the snow. Then the others. The ones from the castle, from the night of the first of May. Every one. Harry didn't read them. He knew where each of them was without looking, the way you know where things are in a room you've lived in.
 
 *GILDEROY LOCKHART, WHO HELD THIS BRIDGE.*
 
@@ -50091,29 +50091,29 @@ The eleven from the village, first, from the night of the snow. Then the others.
 
 She stopped at that one for a moment. Then she went on.
 
-At the end, she lowered her wand.
+At the end she lowered her wand.
 
 "Sixty-three," said Evelyn.
 
 "Yes."
 
-She stood and looked at the end of the list, at the blank stone after the last name, where the parapet went on, grey and smooth and frosted, with nothing on it at all.
+She stood looking at the end of the list, at the blank stone after the last name, where the parapet ran on, grey and smooth and frosted, with nothing on it at all.
 
-She did not say anything for a while.
+She stayed quiet for a while.
 
 Then she said, quite quietly, to the stone, "Sixty-four."
 
-Harry did not ask.
+Harry didn't ask.
 
-He did not need to ask. It was the first time in eighteen months that he had not needed to, and he stood on the bridge beside her in the cold, and knew it, without reading anything, the way you know a thing about a person you have known for eight years. A young man in plain black robes with fair hair full of dust, whom nobody had covered.
+He didn't need to. It was the first time in eighteen months he hadn't needed to, and he stood on the bridge beside her in the cold and knew it, without reading anything, the way you know something about a person you've known for eight years. A young man in plain black robes with fair hair full of dust, whom nobody had covered.
 
-He put his hand in his pocket and found hers, which was in there as well, for warmth, because she had forgotten her gloves, and he held it.
+He put his hand in his pocket and found hers, which was in there as well, for warmth, because she'd forgotten her gloves, and he held it.
 
 They stood there for some time.
 
 Somebody was standing at the far end of the bridge.
 
-Harry had not heard him come. He did not hear most things come now, and he had stopped minding. It was Aberforth, in his old coat, with a pipe that was not lit, standing at the end of the downstream parapet with one hand flat on the top of it, on the frost, the way you would put your hand on the neck of a horse.
+Harry hadn't heard him come. He didn't hear most things come now, and he'd stopped minding. It was Aberforth, in his old coat, with a pipe that wasn't lit, standing at the end of the downstream parapet with one hand flat on top of it, on the frost, the way you'd lay your hand on the neck of a horse.
 
 "Thought it was you," said Aberforth.
 
@@ -50123,15 +50123,15 @@ Harry had not heard him come. He did not hear most things come now, and he had s
 
 "It is."
 
-"That block's still upside down," said Aberforth, and nodded at the last block but four. "I've decided I don't care."
+"That block's still upside down," said Aberforth, nodding at the last block but four. "I've decided I don't care."
 
-He looked past Harry, at Evelyn, who had her hand in Harry's pocket and was standing very straight, as she always did, as though somebody might come along at any moment and ask to see her papers.
+He looked past Harry at Evelyn, who had her hand in Harry's pocket and was standing very straight, as she always did, as though somebody might come along at any moment and ask to see her papers.
 
-He looked at the two of them for a while, the old man, with his very blue eyes, in the dark.
+He looked at the two of them for a while, the old man with his very blue eyes, in the dark.
 
 "About time," said Aberforth.
 
-He put the cold pipe in his mouth and went off up the lane towards the Hog's Head, and did not look back, and did not say goodnight.
+He put the cold pipe in his mouth and went off up the lane towards the Hog's Head, and didn't look back, and didn't say goodnight.
 
 "What did he mean by that?" said Evelyn.
 
@@ -50141,13 +50141,13 @@ He put the cold pipe in his mouth and went off up the lane towards the Hog's Hea
 
 "He's Aberforth," said Harry. "He always knows. He just doesn't like the answers."
 
-Then she put her wand out, and they walked back up the high street to the Apparition point in the dark, past the post office, past the clock, which said ten to eight now, and it began, very lightly, to snow.
+Then she put out her wand, and they walked back up the high street to the Apparition point in the dark, past the post office, past the clock, which said ten to eight now, and it began, very lightly, to snow.
 
 * * *
 
 He made the cake at eleven.
 
-He had not told her he was going to. She was sitting at the long kitchen table at Grimmauld Place with her shoes off and her feet on the next chair and *Gaudy Night* open in front of her, and Kreacher had gone up to bed with his cork necklace on, and the snow was coming down past the high basement windows into the area, quite thick now, settling on the railings. And Harry got up and went to the drawer by the sink, the one with the string and the candle ends, and took out an old index card covered in big untidy blue handwriting, and propped it against the sugar jar.
+He hadn't told her he was going to. She was sitting at the long kitchen table at Grimmauld Place with her shoes off and her feet on the next chair and *Gaudy Night* open in front of her, and Kreacher had gone up to bed with his cork necklace on, and the snow was coming down past the high basement windows into the area, quite thick now, settling on the railings. And Harry got up and went to the drawer by the sink, the one with the string and the candle ends, and took out an old index card covered in big untidy blue handwriting, and propped it against the sugar jar.
 
 Evelyn looked up.
 
@@ -50163,7 +50163,7 @@ Evelyn looked up.
 
 "No," said Harry. "It's not."
 
-She looked at him for a long moment over the top of *Gaudy Night*.
+She looked at him over the top of *Gaudy Night*.
 
 "It's for me," she said.
 
@@ -50173,27 +50173,27 @@ She looked at him for a long moment over the top of *Gaudy Night*.
 
 He thought about it honestly.
 
-"Because you ate a slice last year," said Harry. "From the least black edge. And you gave it three out of ten. And I've never made anything for you in my life. And it's the only thing I know how to make." He rolled his sleeves up. "And because it's supposed to be awful."
+"Because you ate a slice last year," said Harry. "From the least black edge. And you gave it three out of ten. And I've never made anything for you in my life. And it's the only thing I know how to make." He rolled up his sleeves. "And because it's supposed to be awful."
 
-She did not say anything.
+She said nothing.
 
-She looked at him a moment longer. Then she looked back down at her book, and turned a page, and he could not tell what was in her face, and he did not ask. Not yet. He would ask later. He got out the bowls.
+She looked at him a moment longer. Then she looked back down at her book and turned a page, and he couldn't tell what was in her face, and he didn't ask. Not yet. He'd ask later. He got out the bowls.
 
-It took him an hour and fifty-two minutes. He used every bowl in the kitchen. The kitchen filled with smoke at a quarter past twelve, and Evelyn got up without a word and opened the window into the area, and the snow came in, a little, onto the flagstones, and she shut it again. He followed the card exactly. He measured everything twice. He did not know why it went wrong. It went wrong anyway. It came out of the oven at seven minutes to one and he put it on the table and they looked at it.
+It took him an hour and fifty-two minutes. He used every bowl in the kitchen. The kitchen filled with smoke at a quarter past twelve, and Evelyn got up without a word and opened the window into the area, and the snow blew in a little onto the flagstones, and she shut it again. He followed the card exactly. He measured everything twice. He didn't know why it went wrong. It went wrong anyway. It came out of the oven at seven minutes to one, and he set it on the table, and they looked at it.
 
-It was not lopsided. That was the first surprising thing. It was quite level. It was black round the edges, as it should have been, but it had not sunk in the middle, and when he iced it the icing went on white, an actual white, the white of icing in a shop window, and he looked at it in some alarm.
+It wasn't lopsided. That was the first surprise. It was quite level. It was black round the edges, as it should have been, but it hadn't sunk in the middle, and when he iced it the icing went on white, an actual white, the white of icing in a shop window, and he looked at it in some alarm.
 
-He wrote on it, with Hermione's piping bag, *HAPY BIRTHDY EVELYN*.
+He wrote on it with Hermione's piping bag, *HAPY BIRTHDY EVELYN*.
 
 "It isn't my birthday," said Evelyn.
 
 "It's the recipe," said Harry. "It's part of the recipe. Hermione said."
 
-She looked at the cake. She looked at it for a long time.
+She looked at the cake for a long time.
 
-Then she cut a slice, from the least black edge, and put it on a plate, and sat down with it, and ate it. All of it. Slowly. With a fork. While he sat across the table and watched her and could not tell anything.
+Then she cut a slice from the least black edge and put it on a plate and sat down with it and ate it. All of it. Slowly. With a fork. Whilst he sat across the table and watched her and couldn't tell anything.
 
-She put the fork down.
+She put down the fork.
 
 "Four," said Evelyn.
 
@@ -50207,7 +50207,7 @@ She put the fork down.
 
 "You said four."
 
-"The fourth one is because you made it," said Evelyn. "At eleven o'clock at night. For no reason. Without telling me." She looked at the cake. "It's still a very bad cake, Potter. I want that understood. It's one of the worst cakes I've ever eaten. It has the texture of a hassock."
+"The fourth is because you made it," said Evelyn. "At eleven o'clock at night. For no reason. Without telling me." She looked at the cake. "It's still a very bad cake, Potter. I want that understood. It's one of the worst cakes I've ever eaten. It has the texture of a hassock."
 
 "Thank you."
 
@@ -50215,7 +50215,7 @@ She put the fork down.
 
 "I know," said Harry. "I'm saying thank you anyway."
 
-She looked at him across the table. Her face did the thing. The thing he had first seen it do in Ferrari's, under the photograph of Ribot, and had seen it do perhaps a dozen times since, and still did not know the meaning of from the outside, and had decided, some time in November, that he could live without knowing.
+She looked at him across the table. Her face did the thing. The thing he'd first seen it do in Ferrari's, beneath the photograph of Ribot, and had seen it do perhaps a dozen times since, and still didn't know the meaning of from the outside, and had decided some time in November that he could live without knowing.
 
 "Ask me," said Evelyn.
 
@@ -50227,11 +50227,11 @@ He looked at her.
 
 "What are you feeling?" said Harry.
 
-"Irritated," said Evelyn at once. "About forty per cent. You have used every bowl in the house, including the one I keep the clothes pegs in. I don't know why you needed that one. Nothing in the recipe needs a clothes-peg bowl."
+"Irritated," said Evelyn at once. "About forty per cent. You've used every bowl in the house, including the one I keep the clothes pegs in. I don't know why you needed that one. Nothing in the recipe needs a clothes-peg bowl."
 
 "I was looking for the sieve."
 
-"The sieve is on the hook. It has always been on the hook. It has been on the hook since 1995." She did not smile. "Forty per cent. Then fond. I'd put that at about fifty. It would be higher, but there's the bowl."
+"The sieve is on the hook. It has always been on the hook. It has been on the hook since 1995." She didn't smile. "Forty per cent. Then fond. I'd put that at about fifty. It would be higher, but there's the bowl."
 
 "And the rest?"
 
@@ -50243,7 +50243,7 @@ Evelyn considered this.
 
 "If I knew," she said, "it would be classified."
 
-He laughed. He could not help it. It came out of him, short and surprised, in the kitchen at Grimmauld Place at five past one in the morning, with the snow coming down past the window and a terrible white cake on the table between them. And she sat and watched him laugh with her plain quiet face, and her arms folded, and he did not know what she was feeling, and he would ask her again tomorrow, and she would tell him, and he would believe her.
+He laughed. He couldn't help it. It burst out of him short and surprised in the kitchen at Grimmauld Place at five past one in the morning, with the snow coming down past the window and a terrible white cake on the table between them. And she sat and watched him laugh with her plain quiet face and her arms folded, and he didn't know what she was feeling, and he'd ask her again tomorrow, and she'd tell him, and he'd believe her.
 
 "Go to bed, Potter," said Evelyn. "You've got stone to carry in the morning."
 
@@ -50255,7 +50255,7 @@ He laughed. He could not help it. It came out of him, short and surprised, in th
 
 He went to the door. He stopped there and looked back at her.
 
-She did not look up.
+She didn't look up.
 
 He went up to bed.
 
@@ -50263,15 +50263,15 @@ He went up to bed.
 
 It was twenty past two when Evelyn finished the last bowl.
 
-She dried it, and put it away, and stood in the kitchen at Grimmauld Place in her stockinged feet with the tea towel over her shoulder, and noted that the kitchen was very quiet. The snow had stopped. Kreacher was asleep. Potter was asleep. The terrible white cake sat on the table under a clean cloth, with one slice gone from the least black edge.
+She dried it and put it away, and stood in the kitchen at Grimmauld Place in her stockinged feet with the tea towel over her shoulder, and noted that the kitchen was very quiet. The snow had stopped. Kreacher was asleep. Potter was asleep. The terrible white cake sat on the table under a clean cloth, one slice gone from the least black edge.
 
 She took the watch out of her pocket.
 
-She did not know why. It was not seven in the morning. It had been seven in the morning every time for nine years, give or take a few days in a hospital wing, and it was twenty past two at night. But she had been standing very still for some time, and her hand had gone to her pocket the way it always did, and the watch was in it.
+She didn't know why. It wasn't seven in the morning. It had been seven in the morning every time for nine years, give or take a few days in a hospital wing, and it was twenty past two at night. But she'd been standing very still for some time, and her hand had gone to her pocket the way it always did, and the watch was in it.
 
 She opened the lid.
 
-Eleven minutes past seven. The ivy leaves worn smooth. The ordinary second hand a little before twelve, where it had stopped on a morning in December, two years ago, on the seventh turn.
+Eleven minutes past seven. The ivy leaves worn smooth. The ordinary second hand a little before twelve, where it had stopped on a December morning two years ago, on the seventh turn.
 
 She turned the crown.
 
@@ -50279,23 +50279,23 @@ She did it out of habit. Forwards, as her grandmother had taught her. Never back
 
 And the fine hand moved.
 
-The third hand. The very fine one, so fine that most people never noticed it was there, which had never moved. Not once, in nine years. Not when she was eleven, or fourteen, or seventeen, or in another world, or in Courtroom Ten, or on the ferns in the Forest with somebody's hand in hers. It had never moved at all.
+The third hand. The very fine one, so fine most people never noticed it was there, which had never moved. Not once in nine years. Not when she was eleven, or fourteen, or seventeen, or in another world, or in Courtroom Ten, or on the ferns in the Forest with somebody's hand in hers. It had never moved at all.
 
 It moved one mark.
 
-She heard it. It was a very small sound. It was the smallest sound she had ever heard in her life, smaller than a pin dropped on a carpet, in a quiet kitchen in the middle of the night.
+She heard it. It was a very small sound. It was the smallest sound she'd ever heard in her life, smaller than a pin dropped on a carpet, in a quiet kitchen in the middle of the night.
 
 Tick.
 
 Then it was still again.
 
-She stood in the kitchen with the watch open on her palm and looked at it for a long time. She did not move. She did not turn the crown again. She looked at the fine hand, which was one mark further on than it had been, and would not move again, she thought, tonight. She did not know what it meant. She did not know which hour it belonged to, or whose, or how many there were.
+She stood in the kitchen with the watch open on her palm and looked at it for a long time. She didn't move. She didn't turn the crown again. She looked at the fine hand, which was one mark further on than it had been, and wouldn't move again tonight, she thought. She didn't know what it meant. She didn't know which hour it belonged to, or whose, or how many there were.
 
-She would tell him.
+She'd tell him.
 
 Not yet.
 
-She closed the lid, and put the watch back in her cardigan pocket, and buttoned the pocket, and went to the foot of the stairs, and stood there, in the dark, with one hand on the banister.
+She closed the lid, put the watch back in her cardigan pocket, buttoned the pocket, and went to the foot of the stairs, and stood there in the dark with one hand on the banister.
 
 She thought that in the morning, before he could ask her, she might ask him.
 
