@@ -32751,51 +32751,51 @@ Then she went down to breakfast.
 
 ## Chapter 51: The Diadem
 
-The *Prophet* came down the Slytherin table at breakfast on the sixteenth of January, and Harry did not need to read it. He read the table instead.
+The *Prophet* came down the Slytherin table at breakfast on the sixteenth of January, and Harry didn't need to read it. He read the table instead.
 
-It went along the benches from the end nearest the doors, where the owls had come in, the way fire goes along a fuse. A sixth-year opened the paper and went still. The girl beside her leaned over and went still. Then it was moving, from one person to the next, faster than the paper could be passed, and what was moving was fear.
+It went along the benches from the end nearest the doors, where the owls had come in, the way fire goes along a fuse. A sixth-year opened the paper and went still. The girl beside her leaned over and went still. Then it was moving from one person to the next, faster than the paper could be passed, and what was moving was fear.
 
-It was not like the fear in June. In June it had been the fear of children told something at breakfast that their parents had always said would never happen. This was older. This was the fear of children whose parents had told them, all their lives, about a time before they were born, and who had just been shown a photograph from it.
+It wasn't like the fear in June. In June it had been the fear of children told something at breakfast that their parents had always said would never happen. This was older. This was the fear of children whose parents had told them, all their lives, about a time before they were born, and who'd just been shown a photograph from it.
 
 Theo passed him the paper without a word.
 
-MASS BREAKOUT FROM AZKABAN, it said. MINISTRY FEARS BLACK IS RALLYING POINT. Under the headline there were ten photographs, ten black-and-white faces, moving, and under each one a name and a crime. Harry looked at the names.
+MASS BREAKOUT FROM AZKABAN, it said. MINISTRY FEARS BLACK IS RALLYING POINT. Beneath the headline were ten photographs, ten black-and-white faces, moving, and under each one a name and a crime. Harry looked at the names.
 
 *Augustus Rookwood.*
 
-He had sent that name to Dumbledore on a piece of parchment in the second week of December. He had felt it come up out of somebody's satisfaction like a stone turned over. He had felt it go into the Order, he had thought, like a stone into a pond.
+He'd sent that name to Dumbledore on a piece of parchment in the second week of December. He'd felt it rise out of somebody's satisfaction like a stone turned over. He'd felt it go into the Order, he'd thought, like a stone into a pond.
 
-It had not been enough.
+It hadn't been enough.
 
-He looked at the photograph in the middle of the page. It was a woman with long dark hair, heavy-lidded, with a thin, scornful, beautiful face gone gaunt, and she was smiling at him out of the paper. *Bellatrix Lestrange*, it said under her. *Convicted of the torture and permanent incapacitation of Frank and Alice Longbottom.*
+He looked at the photograph in the middle of the page. A woman with long dark hair, heavy-lidded, with a thin, scornful, beautiful face gone gaunt, smiling at him out of the paper. *Bellatrix Lestrange*, it said beneath her. *Convicted of the torture and permanent incapacitation of Frank and Alice Longbottom.*
 
 He thought about a lamp left on in an empty house.
 
 He looked down the table.
 
-Draco Malfoy was holding his own copy of the *Prophet*, and he was not frightened. Harry read him and found the fear there, because it was in all of them, but it was not on the top. On the top, coming up through the fear like a hand coming up through water, there was pride. Hot and bright and fierce, aimed at the paper, at the ten faces, at the gaunt woman in the middle.
+Draco Malfoy was holding his own copy of the *Prophet*, and he wasn't frightened. Harry read him and found the fear there, because it was in all of them, but it wasn't on the top. On the top, rising through the fear like a hand coming up through water, was pride. Hot and bright and fierce, aimed at the paper, at the ten faces, at the gaunt woman in the middle.
 
 She was his aunt.
 
-Harry remembered that. Tonks had shouted it to him over the M25. *Narcissa's the middle one.* Bellatrix was the eldest, and she had been in Azkaban since before Draco was born, and she was out, and Draco was proud.
+Harry remembered that. Tonks had shouted it to him over the M25. *Narcissa's the middle one.* Bellatrix was the eldest. She'd been in Azkaban since before Draco was born, and she was out, and Draco was proud.
 
-And under the pride, very small, there was something else that Harry had felt in Draco only once before, at the far window of the common room in June. A fear of not being good enough, aimed at a churchyard. It had moved. It was aimed at the gaunt woman now.
+And beneath the pride, very small, was something Harry had felt in Draco only once before, at the far window of the common room in June. A fear of not being good enough, aimed at a churchyard. It had moved. It was aimed at the gaunt woman now.
 
-"He's pleased," said Theo, very quietly, beside him.
+"He's pleased," Theo murmured beside him.
 
 Harry looked at him.
 
-"Malfoy." Theo did not look up from his porridge. "You don't have to do your thing. I can see it from here."
+"Malfoy." Theo didn't look up from his porridge. "You don't have to do your thing. I can see it from here."
 
 * * *
 
-The fear did not go down.
+The fear didn't subside.
 
-It rose all week. Harry read it rise in the corridors, in classrooms, at meals, in the queue for the Owlery, where people stood with letters home and did not talk. It rose in the staff room, which he could feel through the door when he went past it, a low anxious mutter that went on late into the night. It rose in Hagrid, who had come back from somewhere in the north in November with cuts on his face and would not say where he had been, and who was frightened now in a way Harry had never felt him, not for himself but for everybody.
+It rose all week. Harry read it rise in the corridors, in classrooms, at meals, in the queue for the Owlery, where people stood with letters home and didn't talk. It rose in the staff room, which he could feel through the door when he went past, a low anxious mutter that went on late into the night. It rose in Hagrid, who'd come back from somewhere in the north in November with cuts on his face and wouldn't say where he'd been. He was frightened now in a way Harry had never felt him, not for himself but for everybody.
 
 It rose in Neville.
 
-Neville did not say anything. He came to the Room of Requirement on the Wednesday and worked harder than Harry had ever seen anybody work, on the Shield Charm, for two hours, with his face set. At the end he could do it. Not well. But he could do it. He stood in the middle of the long room with a pale silver shimmer in the air in front of his wand, and Harry read him, and the stubbornness was there, the small fierce thing with his grandmother in it, and it had grown. It was aimed at a photograph of a woman with heavy-lidded eyes.
+Neville didn't talk about it. He came to the Room of Requirement on the Wednesday and worked harder than Harry had ever seen anybody work, on the Shield Charm, for two hours, his face set. At the end he could do it. Not well. But he could do it. He stood in the middle of the long room with a pale silver shimmer in the air in front of his wand, and Harry read him. The stubbornness was there, the small fierce thing with his grandmother in it, and it had grown. It was aimed at a photograph of a woman with heavy-lidded eyes.
 
 "Again," said Harry.
 
@@ -32805,9 +32805,9 @@ Neville did it again.
 
 Professor Umbridge asked him to stay behind after Defence on the Thursday.
 
-She waited until the room was empty. She sat at her desk with her hands folded on her clipboard and smiled at him, and Draco Malfoy was standing by the window.
+She waited until the room was empty. She sat at her desk with her hands folded on her clipboard and smiled at him. Draco Malfoy was standing by the window.
 
-Harry had not expected that. He read the room as he came up to the desk, and Draco was by the window with his arms folded and his prefect's badge very bright on his chest, and what was in him was a cold, sharp, waiting attention, aimed at Harry.
+Harry hadn't expected that. He read the room as he came up to the desk. Draco was by the window with his arms folded and his prefect's badge very bright on his chest, and what was in him was a cold, sharp, waiting attention, aimed at Harry.
 
 "Mr Potter," said Umbridge. "Do sit down. I've asked Mr Malfoy to join us. I've been asking a few of the more *responsible* students to help me this term. These are difficult times."
 
@@ -32815,29 +32815,45 @@ Harry had not expected that. He read the room as he came up to the desk, and Dra
 
 "I'll come straight to the point, dear, because I know you'll appreciate it." She tilted her head. "I have reason to believe there is an illegal student association operating in this school."
 
-Harry did not let anything happen in his face.
+Harry didn't let anything happen in his face.
 
-He read her. The self-satisfaction was there, undisturbed. The sweetness. But on top of them, new, there was something sharp and hungry, aimed past him at the castle. At the walls, the corridors, the whole of it, the way a cat's attention is aimed at a wainscot where it has heard something scratch.
+He read her. The self-satisfaction was there, undisturbed. The sweetness. But on top of them, new, was something sharp and hungry, aimed past him at the castle. At the walls, the corridors, the whole of it, the way a cat's attention is aimed at a wainscot where it's heard something scratch.
 
-She knew there was something. She did not know where.
+She knew there was something. She didn't know where.
 
 "An association, Professor?"
 
-"A group. Meeting in secret. Against Decree Twenty-Four." She smiled. "I don't know who. I don't know where. But I hear things, dear. Students talk. They talk in the library and in the Owlery and in the bathrooms, and some of them talk to me." She leaned forward a little. "And I thought to myself, who in this school notices things? Who sees what other people miss? And I thought of you."
+"A group. Meeting in secret. Against Decree Twenty-Four."
+
+She smiled.
+
+"I don't know who. I don't know where. But I hear things, dear. Students talk. They talk in the library and in the Owlery and in the bathrooms, and some of them talk to me."
+
+She leaned forward a little.
+
+"And I thought to myself, who in this school notices things? Who sees what other people miss? And I thought of you."
 
 Harry thought about it.
 
-He thought about it for perhaps two seconds, and in those two seconds he did what he did, which was to read what she wanted. She did not want the truth. She did not know what the truth was. She wanted a direction. She wanted somewhere to point the hungry thing. And more than that, under it, she wanted it to come from him, because she liked him, and she wanted to be right to like him.
+He thought about it for perhaps two seconds, and in those two seconds he did what he did, which was read what she wanted. She didn't want the truth. She didn't know what the truth was. She wanted a direction. She wanted somewhere to point the hungry thing. And more than that, beneath it, she wanted it to come from him, because she liked him, and she wanted to be right to like him.
 
 "There's something," he said slowly.
 
 Umbridge's eyes brightened.
 
-"I don't know if it's anything," said Harry. "I don't want to get anybody into trouble." He looked down at the desk. "Some of the Ravenclaw seventh-years go up to the Astronomy Tower on Tuesday nights. After the lesson. They stay up there till after midnight. I've seen them come down. I thought it was just star charts. But there were a lot of them. Twelve or thirteen." He hesitated. "And one of them had a book I didn't recognise. It was bound in black."
+"I don't know if it's anything," said Harry. "I don't want to get anybody into trouble."
+
+He looked down at the desk.
+
+"Some of the Ravenclaw seventh-years go up to the Astronomy Tower on Tuesday nights. After the lesson. They stay up there till after midnight. I've seen them come down. I thought it was just star charts. But there were a lot of them. Twelve or thirteen."
+
+He hesitated.
+
+"And one of them had a book I didn't recognise. It was bound in black."
 
 He read it go into her.
 
-It went in perfectly. It went in the way a key goes into a lock that has been oiled. The Ravenclaw seventh-years did go up to the Astronomy Tower on Tuesday nights, because they had an Astronomy NEWT in June and Professor Sinistra let them use the big telescope. There were twelve of them. One of them, a girl called Imelda Pryce, had a book bound in black, because it was a star atlas published in Leipzig in 1887 and the cover was black.
+It went in perfectly, the way a key goes into a lock that's been oiled. The Ravenclaw seventh-years did go up to the Astronomy Tower on Tuesday nights, because they had an Astronomy NEWT in June and Professor Sinistra let them use the big telescope. There were twelve of them. One of them, a girl called Imelda Pryce, had a book bound in black, because it was a star atlas published in Leipzig in 1887 and the cover was black.
 
 All of it was true. None of it was anything.
 
@@ -32847,23 +32863,23 @@ All of it was true. None of it was anything.
 
 "Oh, so do I, dear," said Umbridge. "So do I."
 
-She did not hope it was nothing. Harry read her not hope it. The hungry thing had found somewhere to point, and it was pointing, and it was pleased.
+She didn't hope it was nothing. Harry read her not hope it. The hungry thing had found somewhere to point, and it was pointing, and it was pleased.
 
 He stood up.
 
-As he turned to go he looked at the window, because he could not help it. Draco Malfoy had not moved. He was still standing with his arms folded, looking at Harry, and his face was quite still.
+As he turned to go he looked at the window, because he couldn't help it. Draco Malfoy hadn't moved. He was still standing with his arms folded, looking at Harry, and his face was quite still.
 
 Harry read him.
 
-The cold waiting attention was still there. But it had sharpened. It had sharpened into something Harry had felt in Draco only in the last month, very faint, at the edge, and now it had come into the middle of him.
+The cold waiting attention was still there. But it had sharpened. It had sharpened into something Harry had felt in Draco only in the last month, very faint, at the edge, and now it had moved into the middle of him.
 
-It was suspicion. And under the suspicion, small and hard and very bright, there was something worse.
+Suspicion. And beneath the suspicion, small and hard and very bright, something worse.
 
-It was recognition.
+Recognition.
 
-Draco had been read by Harry Potter for five years. He had sat across a common room from him and been read. He had stood in corridors and dormitories and on Quidditch pitches and had felt, every single time he was afraid, Harry know it. And he had watched Harry, for five years, do to other people what Harry did to him. He had watched him do it to prefects and teachers and the Weasleys and Cedric Diggory and a whole Hall of people on the night of the dragon.
+Draco had been read by Harry Potter for five years. He'd sat across a common room from him and been read. He'd stood in corridors and dormitories and on Quidditch pitches and felt, every single time he was afraid, Harry know it. And for five years he'd watched Harry do to other people what Harry did to him. He'd watched him do it to prefects and teachers and the Weasleys and Cedric Diggory and a whole Hall of people on the night of the dragon.
 
-He had just watched him do it to Umbridge.
+He'd just watched him do it to Umbridge.
 
 He knew what it looked like.
 
@@ -32875,7 +32891,7 @@ He knew what it looked like.
 
 "That I lied to her."
 
-Evelyn did not look up from her notebook. They were in the fourth-floor classroom at half past four, with the lamps lit and the January dark already down outside the window.
+Evelyn didn't look up from her notebook. They were in the fourth-floor classroom at half past four, with the lamps lit and the January dark already down outside the window.
 
 "Does he know what you lied about?"
 
@@ -32887,7 +32903,11 @@ Evelyn did not look up from her notebook. They were in the fourth-floor classroo
 
 "He's always watched you."
 
-"Not like this." Harry was sitting on the windowsill, with his back to the glass. "He used to watch me because he hated me. Now he's watching me the way I watch people."
+"Not like this."
+
+Harry was sitting on the windowsill with his back to the glass.
+
+"He used to watch me because he hated me. Now he's watching me the way I watch people."
 
 Evelyn put her pen down.
 
@@ -32897,9 +32917,9 @@ Evelyn put her pen down.
 
 "You were," said Evelyn, "until you started going to bed at three."
 
-He did not answer. She picked her pen up again.
+He didn't answer. She picked up her pen again.
 
-"And the Ravenclaws?" she said, after a moment.
+"And the Ravenclaws?" she asked after a moment.
 
 "Imelda Pryce's star atlas. Leipzig, eighteen eighty-seven."
 
@@ -32907,7 +32927,11 @@ He did not answer. She picked her pen up again.
 
 "She'll find star charts."
 
-"And she'll be cross. And she'll ask you again, and you'll have to give her something else." Evelyn wrote a line, and underlined it. "You can't keep giving her nothing, Potter. Sooner or later she'll notice it's nothing."
+"And she'll be cross. And she'll ask you again, and you'll have to give her something else."
+
+Evelyn wrote a line and underlined it.
+
+"You can't keep giving her nothing, Potter. Sooner or later she'll notice it's nothing."
 
 "I know."
 
@@ -32917,33 +32941,33 @@ He did not answer. She picked her pen up again.
 
 Draco had been given something.
 
-Harry read it on him on the Monday after, at breakfast, when an eagle owl came down the Slytherin table and dropped a letter in front of him and flew away without waiting to be fed. Draco read the letter. Then he folded it very small and put it inside his robes, against his chest, and went on eating his toast, and his face did not change at all.
+Harry read it on him at breakfast on the Monday after, when an eagle owl came down the Slytherin table and dropped a letter in front of him and flew away without waiting to be fed. Draco read the letter. Then he folded it very small and tucked it inside his robes, against his chest, and went on eating his toast, and his face didn't change at all.
 
 What was in him changed completely.
 
-It was fear, first, and it was very large, larger than anything Harry had felt in Draco since the churchyard. But it was not the fear of being found out, or of being hurt, or of not being good enough, though that was there, at the bottom, as always. It was the fear of a boy who has been given something to carry that is far too heavy for him, and has been told that he must carry it alone, and must not drop it.
+Fear, first, and very large, larger than anything Harry had felt in Draco since the churchyard. But it wasn't the fear of being found out, or of being hurt, or of not being good enough, though that was there at the bottom, as always. It was the fear of a boy who's been given something to carry that's far too heavy for him, and been told he must carry it alone, and mustn't drop it.
 
-And on top of the fear, almost as large, there was pride.
+And on top of the fear, almost as large, was pride.
 
-The pride from the morning of the *Prophet*, aimed at the gaunt woman. It was aimed at the letter now. At himself, because of the letter. And under the pride, and around it, and holding it up like scaffolding round a building, there was a third thing Harry had never felt in Draco Malfoy in his life.
+The pride from the morning of the *Prophet*, aimed at the gaunt woman. It was aimed at the letter now. At himself, because of the letter. And beneath the pride and round it, holding it up like scaffolding round a building, was a third thing Harry had never felt in Draco Malfoy in his life.
 
 Importance.
 
-Somebody had asked Draco Malfoy to do something. Not his father. Not his mother. Somebody larger than either of them. And Draco had been chosen. He had been chosen over Crabbe, and Goyle, and Pansy, and every other child of every other family that had knelt in a churchyard, and he knew it, and it was holding him up from the inside like a pole.
+Somebody had asked Draco Malfoy to do something. Not his father. Not his mother. Somebody larger than either of them. Draco had been chosen. Chosen over Crabbe, and Goyle, and Pansy, and every other child of every other family that had knelt in a churchyard. He knew it, and it was holding him up from the inside like a pole.
 
 Harry read it all that week.
 
-He read it at every meal. He read it in Potions, where Draco's hands were not quite steady on his knife. He read it in the common room in the evenings, where Draco sat in his usual chair by the fire and did not talk to Crabbe or Goyle and kept one hand on his chest, on the place where the letter was, as though checking it was still there.
+He read it at every meal. He read it in Potions, where Draco's hands weren't quite steady on his knife. He read it in the common room in the evenings, where Draco sat in his usual chair by the fire and didn't talk to Crabbe or Goyle and kept one hand on his chest, on the place where the letter was, as though checking it was still there.
 
 The fear grew. The pride grew. The importance grew with them, and held them both up.
 
 On the Friday night, at ten minutes to eleven, Draco got up out of his chair by the fire and went out through the stone wall alone.
 
-Harry was already standing up.
+Harry was already on his feet.
 
 * * *
 
-Evelyn was in the corridor outside the common room, as he had known she would be. He had told her on the Thursday. She was standing in the shadow of an alcove in her cardigan with her wand in her hand and her face giving nothing away.
+Evelyn was in the corridor outside the common room, as he'd known she would be. He'd told her on the Thursday. She stood in the shadow of an alcove in her cardigan with her wand in her hand and her face giving nothing away.
 
 "Seventh floor," said Harry. "I think. He's been looking up at the ceiling at meals."
 
@@ -32957,129 +32981,133 @@ Evelyn looked at him.
 
 "Usually." He took the Cloak out of his bag. "Get under."
 
-They went up under the Cloak, close together, the way they had gone through a castle in another world, matching steps without having to think about it. Harry walked and read ahead. Evelyn walked and watched behind. Draco was three staircases ahead of them, going up, quickly, with the fear and the pride and the importance all humming in him at once like wires in a wind.
+They went up beneath the Cloak, close together, the way they'd gone through a castle in another world, matching steps without having to think about it. Harry walked and read ahead. Evelyn walked and watched behind. Draco was three staircases ahead of them, climbing quickly, the fear and the pride and the importance all humming in him at once like wires in a wind.
 
 He went to the seventh floor.
 
-He went along the corridor past Barnabas the Barmy and his dancing trolls on their wall-hanging, and stopped in front of the blank stretch of wall opposite, where nothing ever was, and Harry stopped forty feet behind him, under the Cloak, and did not breathe.
+He went along the corridor past Barnabas the Barmy and his dancing trolls on their tapestry, and stopped in front of the blank stretch of wall opposite, where nothing ever was. Harry stopped forty feet behind him, under the Cloak, and didn't breathe.
 
 Draco walked past the wall.
 
-He walked past it, and turned, and walked past it again, and turned, and walked past it a third time, with his eyes shut and his lips moving. And Harry, forty feet away, felt what Draco was wanting. It was so loud that he could not have missed it. Not a place to fight, or a place to hide, or a place to learn.
+He walked past it, and turned, and walked past it again, and turned, and walked past it a third time, with his eyes shut and his lips moving. And forty feet away, Harry felt what Draco was wanting. It was so loud he couldn't have missed it. Not a place to fight, or a place to hide, or a place to learn.
 
 *A place where things are hidden.*
 
 A door appeared in the wall.
 
-It was not the door Harry knew. The door to the room he taught in was plain wood. This one was taller and older and darker, with iron studs, and Draco opened it and went through and it began, at once, to close behind him.
+It wasn't the door Harry knew. The door to the room he taught in was plain wood. This one was taller and older and darker, studded with iron. Draco opened it and went through, and at once it began to close behind him.
 
-"Now," said Evelyn.
+"Now," Evelyn breathed.
 
-They ran. They ran the forty feet under the Cloak with their feet making no sound on the flagstones, which Evelyn could do and Harry had learned from her, and they went through the closing door sideways, together, with perhaps an inch to spare, and it shut behind them with a deep soft sound like a book being closed.
+They ran. They ran the forty feet under the Cloak, their feet making no sound on the flagstones, which Evelyn could do and Harry had learned from her. They went through the closing door sideways, together, with perhaps an inch to spare, and it shut behind them with a deep soft sound like a book being closed.
 
 * * *
 
 It was a city.
 
-That was what Harry thought first. A city, a great dim cathedral of a place with a ceiling so high it was lost in the dark, and through it, in every direction, ran streets. They were streets made of things. Towers and walls and alleys of things, stacked and piled and heaped thirty and forty feet high: broken furniture and books and bottles and cauldrons and boxes, crates and cases and trunks, a stuffed troll, a birdcage with something in it that was not a bird, a rack of old brooms, ten thousand books with their spines falling off, a dragon's egg gone grey with dust.
+That was what Harry thought first. A city, a great dim cathedral of a place with a ceiling so high it was lost in the dark, and through it, in every direction, ran streets. Streets made of things. Towers and walls and alleys of things, stacked and piled and heaped thirty and forty feet high. Broken furniture and books and bottles and cauldrons and boxes. Crates and cases and trunks. A stuffed troll. A birdcage with something in it that wasn't a bird. A rack of old brooms. Ten thousand books with their spines falling off. A dragon's egg gone grey with dust.
 
 Things people had hidden.
 
-Centuries of them. Harry could see that. He could see it in the layers, the way you can see years in a cliff face: the newest things at the edges, Dungbombs and confiscated Fanged Frisbees and a copy of *Witch Weekly* from 1993, and further in, older and older, until in the depths of the streets there were things in leather and wood and iron that nobody had touched since before the castle had glass in its windows.
+Centuries of them. Harry could see that. He could see it in the layers, the way you can see years in a cliff face. The newest things at the edges, Dungbombs and confiscated Fanged Frisbees and a copy of *Witch Weekly* from 1993. Further in, older and older, until in the depths of the streets there were things in leather and wood and iron that nobody had touched since before the castle had glass in its windows.
 
-"Merlin," Evelyn breathed, very quietly, under the Cloak.
+"Merlin," Evelyn whispered under the Cloak.
 
-It was the only time Harry had ever heard her say it.
+It was the only time Harry ever heard her say it.
 
-Draco was ahead of them, walking. He had lit his wand. He walked down the widest street of things with the light held up, looking from side to side, and he was counting. Harry could feel it. He was counting turnings, the way you count when somebody has told you the way and you are afraid of forgetting.
+Draco was ahead of them, walking. He'd lit his wand. He walked down the widest street of things with the light held up, looking from side to side, and he was counting. Harry could feel it. Counting turnings, the way you count when somebody's told you the way and you're afraid of forgetting.
 
 *Left at the stuffed troll.* *Past the cabinet.* *Third turning.*
 
 They followed.
 
-They followed at thirty feet, under the Cloak, between walls of dead furniture. Harry read nothing in the room but Draco. The room was empty of feelings the way a cellar is empty. There was only Draco, ahead, humming with fear and pride, and Evelyn beside him, silent, and the dust.
+They followed thirty feet behind, under the Cloak, between walls of dead furniture. Harry read nothing in the room but Draco. The room was empty of feelings the way a cellar is empty. There was only Draco, ahead, humming with fear and pride, and Evelyn beside him, silent, and the dust.
 
 Draco stopped.
 
-He had stopped beside a cabinet. It was tall and black and very plain, the height of a man and a half, with a single door, and it stood a little apart from the things round it, as though they did not want to touch it. Draco looked at it. He put out his hand and opened its door, and looked inside, with his wand held up.
+He'd stopped beside a cabinet. Tall and black and very plain, the height of a man and a half, with a single door. It stood a little apart from the things round it, as though they didn't want to touch it. Draco looked at it. He put out his hand and opened its door and looked inside, his wand held up.
 
 Harry read him look.
 
-It was not part of the errand. He could feel that. The errand was humming in Draco, steady, pointing on down the street. This was something else. It was curiosity, quick and cold and clever, the curiosity of a boy who has seen something and recognised it and filed it away for later. He looked inside the black cabinet for perhaps five seconds. Then he shut its door again, quietly, and stood looking at it for a moment longer.
+It wasn't part of the errand. He could feel that. The errand was humming in Draco, steady, pointing on down the street. This was something else. Curiosity, quick and cold and clever. The curiosity of a boy who's seen something and recognised it and filed it away for later. He looked inside the black cabinet for perhaps five seconds. Then he shut its door again, quietly, and stood looking at it a moment longer.
 
 Then he went on.
 
-Harry did not think about the cabinet. He would think about it later. He would think, much later, that he should have thought about it then.
+Harry didn't think about the cabinet. He'd think about it later. Much later, he'd think he should have thought about it then.
 
 * * *
 
-The third turning was narrow, and at the end of it there was a bust.
+The third turning was narrow, and at the end of it was a bust.
 
-It was the marble bust of an ugly old warlock, pitted and stained, standing on top of a pile of broken chairs, and on its head somebody had put a wig, and on top of the wig a tiara. A diadem. It was small and tarnished and black with age, a thin band of metal set with one dull stone at the front, and it sat on the old warlock's wig at an angle, like a joke.
+It was the marble bust of an ugly old warlock, pitted and stained, standing on top of a pile of broken chairs. Somebody had put a wig on its head, and on top of the wig a tiara. A diadem. Small and tarnished and black with age, a thin band of metal set with one dull stone at the front. It sat on the old warlock's wig at an angle, like a joke.
 
 Draco stopped in front of it.
 
-He held his wand up. The light fell on the diadem, and the stone at the front of it, for a moment, under the tarnish, was blue.
+He held his wand up. The light fell on the diadem, and for a moment, beneath the tarnish, the stone at the front of it was blue.
 
 Harry felt it.
 
-He felt it before he understood what he was feeling, because he had felt it only once in his life before, and that had been three years ago, in a school bag, in a book.
+He felt it before he understood what he was feeling, because he'd felt it only once in his life before, and that had been three years ago, in a school bag, in a book.
 
 It was hungry.
 
-The diadem was hungry. It was not a person, it was a piece of metal on a stone head, and it should have been silent, the way every object in the world was silent to him. It was not silent. Out of the band of black metal on the warlock's wig there was coming a thin, cold, patient hunger, aimed at everything, aimed at the warmth of the boy standing in front of it, the way a thing in a book had once been aimed at Harry.
+The diadem was hungry. It wasn't a person. It was a piece of metal on a stone head, and it should have been silent, the way every object in the world was silent to him. It wasn't silent. Out of the band of black metal on the warlock's wig came a thin, cold, patient hunger, aimed at everything. Aimed at the warmth of the boy standing in front of it, the way a thing in a book had once been aimed at Harry.
 
 It was the diary.
 
-It was not the diary. It was the same. It was the same hunger, exactly, the same cold patient wanting, the same loneliness under it, the same envy. It was Tom. Something of Tom was in that diadem the way something of Tom had been in a black book with a name on the back in gold.
+No. It wasn't the diary. It was the same. The same hunger, exactly, the same cold patient wanting, the same loneliness beneath it, the same envy. It was Tom. Something of Tom was in that diadem the way something of Tom had been in a black book with a name on the back in gold.
 
-Draco reached up and took it off the bust.
+Draco reached up and lifted it off the bust.
 
-He held it in both hands. He stood in the narrow street of junk with the light from his wand on the black metal, and Harry felt the hunger turn towards him, towards Draco, and Draco not feel it, because he could not, because he was not Harry.
+He held it in both hands. He stood in the narrow street of junk with the light from his wand on the black metal, and Harry felt the hunger turn towards him, towards Draco, and Draco not feel it, because he couldn't, because he wasn't Harry.
 
 And then Harry felt something else.
 
 It was in himself.
 
-It was very small. It was cold. It was a cold point somewhere far down inside him, so far down that he had only found it twice in his life, once in a bare room in another world and once on a night in March in his own bed, and both times he had called it contamination. He had called it the other Harry's. He had said *it's his, it's not mine*.
+It was very small. Cold. A cold point somewhere far down inside him, so far down that he'd only found it twice in his life. Once in a bare room in another world, and once on a night in March in his own bed. Both times he'd called it contamination. He'd called it the other Harry's. He'd said *it's his, it's not mine*.
 
 It moved.
 
 It moved towards the diadem.
 
-It did not move much. There was no thought in it and no feeling. It was more like a compass needle, sitting very still in its case, that has been brought near a lump of iron. It swung. Very slightly. Towards the black metal in Draco Malfoy's hands. And Harry, standing thirty feet away under an Invisibility Cloak, felt a piece of himself turn towards a tarnished tiara the way a plant turns towards a window.
+It didn't move much. There was no thought in it and no feeling. It was more like a compass needle sitting very still in its case that's been brought near a lump of iron. It swung. Very slightly. Towards the black metal in Draco Malfoy's hands. And Harry, standing thirty feet away under an Invisibility Cloak, felt a piece of himself turn towards a tarnished tiara the way a plant turns towards a window.
 
-He did not move.
+He didn't move.
 
-He could not. He stood under the Cloak with Evelyn's shoulder against his and his wand in his hand and he did not do anything at all, because he was listening, with everything he had, to the cold point in himself swinging slowly towards the hungry thing in the dark, and he could not think of anything else.
+He couldn't. He stood under the Cloak with Evelyn's shoulder against his and his wand in his hand and didn't do anything at all, because he was listening, with everything he had, to the cold point in himself swinging slowly towards the hungry thing in the dark, and he couldn't think of anything else.
 
-"Potter," said Evelyn, very low.
+"Potter," Evelyn breathed.
 
-He did not answer.
+He didn't answer.
 
 "*Potter.*"
 
-Draco had wrapped the diadem in his scarf. He was turning. He was coming back up the narrow street towards them, fast, with his wand held up and the scarf in his other hand, and the light swung across the junk and across the place where they stood under the Cloak and did not stop, and he was past them. He was past them, three feet away, his robes almost brushing the Cloak, and Harry felt the hunger go past inside the scarf, close, and the cold point in himself swing to follow it, and then Draco was round the corner and gone.
+Draco had wrapped the diadem in his scarf. He was turning. He was coming back up the narrow street towards them, fast, his wand held up and the scarf in his other hand. The light swung across the junk and across the place where they stood under the Cloak and didn't stop, and he was past them. He was past them, three feet away, his robes almost brushing the Cloak. Harry felt the hunger go past inside the scarf, close, and the cold point in himself swing to follow it. Then Draco was round the corner and gone.
 
 They heard his footsteps go away down the wide street, quickly.
 
 They heard the door.
 
-Then the city of hidden things was quite silent, except for the dust.
+Then the city of hidden things was utterly hushed, except for the dust.
 
 Evelyn took the Cloak off them both.
 
-She did it all at once, with one movement, and dropped it on the floor, and turned round and looked at him in the light of her wand. Her face told him nothing. It never did.
+She did it all at once, in one movement, and dropped it on the floor, and turned round and looked at him in the light of her wand. Her face told him nothing. It never did.
 
-"What was that?" she said.
+"What was that?" she asked.
 
 "I don't know."
 
-"You *stopped*. You stood there. He walked past us. He was close enough to touch, and you had your wand out, and you stood there and let him go." She was speaking very quietly and very precisely. "I have never once seen you do that. Not in the lake. Not on the moor. Not in the Hall of Prophecy. What *was* it?"
+"You *stopped*. You stood there. He walked past us. He was close enough to touch, and you had your wand out, and you stood there and let him go."
+
+She was speaking very quietly and very precisely.
+
+"I've never once seen you do that. Not in the lake. Not on the moor. Not in the Hall of Prophecy. What *was* it?"
 
 Harry looked at the bust.
 
-The old warlock stood on his pile of broken chairs, with his wig on crooked, and there was nothing on top of it any more.
+The old warlock stood on his pile of broken chairs with his wig on crooked, and there was nothing on top of it any more.
 
 "It was hungry," he said. "The tiara. The way the diary was."
 
@@ -33091,31 +33119,35 @@ Evelyn went very still.
 
 He went to Dumbledore that night.
 
-He went straight from the seventh floor, at a quarter to midnight, with Evelyn walking beside him not saying anything, and at the gargoyle she stopped, and he went up alone. He did not know the password. The gargoyle moved aside before he had said a word, as though it had been told to expect him.
+He went straight from the seventh floor, at a quarter to midnight, with Evelyn walking silently beside him. At the gargoyle she stopped, and he went up alone. He didn't know the password. The gargoyle moved aside before he'd said a word, as though it had been told to expect him.
 
 Dumbledore was at his desk.
 
-He looked up when Harry came in, and Harry saw his face, and read nothing, because he was closed. Then Harry told him.
+He looked up when Harry came in, and Harry saw his face and read nothing, because he was closed. Then Harry told him.
 
 He told him everything.
 
-He had told him a great deal, in June, in this room, at two in the morning. He told him the rest now. He told him about a diary in his second year that had been hungry, that had talked to him for six weeks and been the first thing that ever understood him. He told him about a round room under the school, and a book on a black desk, and a line in that book in faded ink that he had read in his third year and not understood until Varga said *summit*.
+He'd told him a great deal in June, in this room, at two in the morning. He told him the rest now. He told him about a diary in his second year that had been hungry, that had talked to him for six weeks and been the first thing that ever understood him. He told him about a round room beneath the school, and a book on a black desk, and a line in that book in faded ink that he'd read in his third year and not understood until Varga said *summit*.
 
 *The Paths are open to many, but no divided thing may stand upon a summit.*
 
-He told him about the scar. About going through it on purpose, in December, night after night. About the words he had sent. About the ninth of December, and the quiet that turned round, and the cold polite hand moving along his shelves until it found a round room and a black desk and an open book and stopped there, on a line.
+He told him about the scar. About going through it on purpose, in December, night after night. About the words he'd sent. About the ninth of December, and the quiet that turned round, and the cold polite hand moving along his shelves until it found a round room and a black desk and an open book and stopped there, on a line.
 
 "I told myself I'd dreamed it," said Harry. "I hadn't."
 
-He told him about the cold point. The one he had found in himself in another world, and again in March, and called contamination.
+He told him about the cold point. The one he'd found in himself in another world, and again in March, and called contamination.
 
 And he told him about tonight. A city of hidden things, and a tall black cabinet, and a bust on a pile of chairs, and Draco Malfoy lifting a tarnished diadem off a warlock's wig.
 
-"It was hungry," he said. "Exactly the same as the diary. It was *him*. Something of him was in it." He stopped. "And the cold thing in me moved. It turned towards it. Like a compass. I stood there and felt it turn and I couldn't do anything, and Malfoy walked past me with it in his scarf."
+"It was hungry," he said. "Exactly the same as the diary. It was *him*. Something of him was in it."
+
+He stopped.
+
+"And the cold thing in me moved. It turned towards it. Like a compass. I stood there and felt it turn and I couldn't do anything, and Malfoy walked past me with it in his scarf."
 
 He stopped talking.
 
-Dumbledore had not moved. He had not moved once since Harry began. He sat behind his desk with his long hands flat on its surface and his face quite still, and his eyes on Harry, and Harry could feel nothing from him at all.
+Dumbledore hadn't moved. He hadn't moved once since Harry began. He sat behind his desk with his long hands flat on its surface and his face quite still and his eyes on Harry, and Harry could feel nothing from him at all.
 
 Then, very slowly, he stood up.
 
@@ -33131,25 +33163,33 @@ He turned round.
 
 He told him plainly.
 
-He told him that there was a way to divide a soul. That it was done by murder, because murder was the act that tore a soul, and that a wizard who had torn his soul by killing could, by a certain spell, take the torn piece and put it into an object, and hide the object, and so long as the object survived, the wizard could not truly die.
+He told him there was a way to divide a soul. That it was done by murder, because murder was the act that tore a soul. A wizard who'd torn his soul by killing could, by a certain spell, take the torn piece and put it into an object, and hide the object. So long as the object survived, the wizard couldn't truly die.
 
 "It is called a Horcrux," said Dumbledore. "The word is very old, and very ugly, and so is the thing."
 
 "The diary," said Harry.
 
-"The diary. Yes. I knew it when you brought it to me in your second year, with a basilisk fang through its heart. I have known since then that Tom made one. I have suspected, for longer than that, that he made more than one." He sat down again, behind the desk. "I believe he made six. Seven pieces of a soul, in all, counting the one he walks about in. Seven is the most powerful magical number. Tom always liked to be thorough about power."
+"The diary. Yes. I knew it when you brought it to me in your second year, with a basilisk fang through its heart. I have known since then that Tom made one. I have suspected, for longer than that, that he made more than one."
+
+He sat down again behind the desk.
+
+"I believe he made six. Seven pieces of a soul, in all, counting the one he walks about in. Seven is the most powerful magical number. Tom always liked to be thorough about power."
 
 "Six," said Harry.
 
-"The diary, destroyed. And five others, hidden. I have spent a long time looking for them, Harry. Longer than you have been alive. I have found where some of them may have been. I have not found any of them where they are." He looked at Harry over his half-moon glasses. "Tonight you found one of them. On a stone head, in a room on the seventh floor of my own school, where it has been, I would guess, for nearly fifty years. And Draco Malfoy has taken it to his master."
+"The diary, destroyed. And five others, hidden. I have spent a long time looking for them, Harry. Longer than you have been alive. I have found where some of them may have been. I have not found any of them where they are."
 
-Harry did not say anything.
+He looked at Harry over his half-moon glasses.
 
-He was thinking. He was doing what he always did, which was to take what he had been told and lay it out beside what he knew, the way you lay out a chess position, and look at it.
+"Tonight you found one of them. On a stone head, in a room on the seventh floor of my own school, where it has been, I would guess, for nearly fifty years. And Draco Malfoy has taken it to his master."
+
+Harry let that settle.
+
+He was thinking. He was doing what he always did, which was to take what he'd been told and lay it out beside what he knew, the way you lay out a chess position, and look at it.
 
 He looked at it.
 
-He looked at the ninth of December, and a cold hand resting on a line in an open book. He looked at a breakout from Azkaban that had come four weeks later. He looked at an eagle owl at the Slytherin table, and a letter folded small, and a boy chosen for an errand. He looked at a diadem, which had been hidden for fifty years, and had been sent for this winter. Not last winter. Not the winter before. This one.
+He looked at the ninth of December, and a cold hand resting on a line in an open book. He looked at a breakout from Azkaban four weeks later. He looked at an eagle owl at the Slytherin table, and a letter folded small, and a boy chosen for an errand. He looked at a diadem that had been hidden for fifty years and had been sent for this winter. Not last winter. Not the winter before. This one.
 
 He looked at the line.
 
@@ -33159,91 +33199,107 @@ He looked at the line.
 
 Dumbledore looked at him.
 
-"Not to hide them better," said Harry. "To bring them back. All of them. He's sending for them, one at a time. The diadem tonight. Something else from somewhere else." He was speaking slowly, laying it out. "He's walked a Path all his life. Varga said so, sort of. You said so. And he's never got to the top. And he didn't know why. And then on the ninth of December he went into my head and found a book in a round room, and a line in it, and he read it."
+"Not to hide them better," said Harry. "To bring them back. All of them. He's sending for them, one at a time. The diadem tonight. Something else from somewhere else."
+
+He was speaking slowly, laying it out.
+
+"He's walked a Path all his life. Varga said so, sort of. You said so. And he's never got to the top. And he didn't know why. And then on the ninth of December he went into my head and found a book in a round room, and a line in it, and he read it."
 
 He stopped.
 
-"He means to put himself back together," said Harry. "Because a divided thing can't stand on a summit. He wants the summit more than he wants to live for ever." He looked at Dumbledore across the desk. "And he learned it from me. He learned it out of my head. Because I left the door open."
+"He means to put himself back together," said Harry. "Because a divided thing can't stand on a summit. He wants the summit more than he wants to live for ever."
+
+He looked at Dumbledore across the desk.
+
+"And he learned it from me. He learned it out of my head. Because I left the door open."
 
 * * *
 
-Dumbledore did not say anything for a long time.
+For a long time Dumbledore was silent.
 
 Harry read him.
 
-He could, now. Not all of him. But Dumbledore had stopped closing, somewhere in the last few minutes, or had stopped being able to, and things were coming off him the way heat comes off a stone that has been in the sun all day.
+He could, now. Not all of him. But somewhere in the last few minutes Dumbledore had stopped closing, or stopped being able to, and things were coming off him the way heat comes off a stone that's been in the sun all day.
 
 There was horror.
 
-It was very large, and very old, and it went past Harry, to a boy in an orphanage, and at a summit, and at what a man like Tom Riddle would be if he stood on one. Dumbledore had walked his own Path for nearly a hundred years. He knew what a summit was. Harry felt him know it, and felt the horror go all the way down.
+Very large and very old, and it went past Harry. To a boy in an orphanage, and to a summit, and to what a man like Tom Riddle would be if he stood on one. Dumbledore had walked his own Path for nearly a hundred years. He knew what a summit was. Harry felt him know it, and felt the horror go all the way down.
 
 There was agreement.
 
-That was the worst of it. Harry had half hoped, saying it, that Dumbledore would tell him he was wrong. That it was a frightened boy's guess at midnight. He felt, instead, the plain cold weight of a mind that had already got there, a moment before him or a moment after, and had looked at it, and had seen nothing wrong with it at all.
+That was the worst of it. Saying it, Harry had half hoped Dumbledore would tell him he was wrong. That it was a frightened boy's guess at midnight. Instead he felt the plain cold weight of a mind that had already got there, a moment before him or a moment after, and looked at it, and seen nothing wrong with it at all.
 
 *Yes. That is exactly what he is doing.*
 
 And there was a third thing.
 
-Harry did not know what it was. That was what made him stop. He had read Albus Dumbledore open in a firelit office and felt respect and grief and fear. He had read him leave a courtroom without looking back. He had read him in this room six weeks ago, in a purple dressing gown, with his fear aimed at Harry's forehead.
+Harry didn't know what it was. That was what made him stop. He'd read Albus Dumbledore open in a firelit office and felt respect and grief and fear. He'd read him leave a courtroom without looking back. He'd read him in this room six weeks ago, in a purple dressing gown, with his fear aimed at Harry's forehead.
 
 This was none of those.
 
-This was something held back. It was held back very hard. Harry could feel the holding, the way you can feel somebody leaning their whole weight against a door. Dumbledore had opened, and the horror had come out, and the agreement, and behind them, in the very middle of him, there was a thing he had not let out. A thing he was holding shut with everything he had, so hard that it was costing him.
+This was something held back. Held back very hard. Harry could feel the holding, the way you can feel somebody leaning their whole weight against a door. Dumbledore had opened, and the horror had come out, and the agreement. Behind them, in the very middle of him, was a thing he hadn't let out. A thing he was holding shut with everything he had, so hard that it was costing him.
 
 And it was about Harry.
 
-Harry knew that. He did not know how. He knew it the way he knew which way a room was going to tip. Whatever was behind the door in Dumbledore, it was about him.
+Harry knew that. He didn't know how. He knew it the way he knew which way a room was going to tip. Whatever was behind the door in Dumbledore, it was about him.
 
 "Sir," said Harry.
 
 "Yes."
 
-"The thing in me. The cold point. It moved towards the diadem." He looked at Dumbledore. "Why?"
+"The thing in me. The cold point. It moved towards the diadem."
+
+He looked at Dumbledore.
+
+"Why?"
 
 Dumbledore looked back at him.
 
-"Your scar," he said, after a moment, very gently, "connects you to him, Harry. It has done since you were a year old. You have known that for some time. You have used it. He has used it." He folded his hands. "Things that are of him may well call to the part of you that is connected to him. I would not be surprised by it."
+"Your scar," he said after a moment, very gently, "connects you to him, Harry. It has done since you were a year old. You have known that for some time. You have used it. He has used it."
+
+He folded his hands.
+
+"Things that are of him may well call to the part of you that is connected to him. I would not be surprised by it."
 
 Harry read him say it.
 
-It was true. Every word of it was true. He could feel that it was true, because Dumbledore was not lying, and Harry had never once in five years caught him in a lie.
+It was true. Every word of it was true. He could feel that it was true, because Dumbledore wasn't lying, and Harry had never once in five years caught him in a lie.
 
-He was not lying.
+He wasn't lying.
 
 He was standing in front of a door.
 
-Harry looked at him across the desk, in the light of the low fire, and the old man looked back, quite calm, quite kind, with his hands folded and his eyes on Harry's over the half-moon glasses. And behind him, behind the calm and the kindness and the true things he had said, the door stayed shut, and the weight against it did not shift, not by an inch.
+Harry looked at him across the desk in the light of the low fire, and the old man looked back, quite calm, quite kind, with his hands folded and his eyes on Harry's over the half-moon glasses. And behind him, behind the calm and the kindness and the true things he'd said, the door stayed shut, and the weight against it didn't shift, not by an inch.
 
-Dumbledore did not say anything else.
+Dumbledore said nothing else.
 
-Harry waited. He had learned to wait in this room. He had been waited for, once, in this room, at two in the morning, by this man. He waited now.
+Harry waited. He'd learned to wait in this room. He'd been waited for, once, in this room, at two in the morning, by this man. He waited now.
 
-Dumbledore did not say it.
+Dumbledore didn't say it.
 
 <->
 
 ## Chapter 52: The Flight
 
-Umbridge searched the Ravenclaw seventh-years on the second Tuesday in February, at a quarter past twelve at night, on the top of the Astronomy Tower, and found twelve star charts, a telescope, and Imelda Pryce's atlas of the northern sky, Leipzig, 1887.
+Umbridge searched the Ravenclaw seventh-years on the second Tuesday in February, at a quarter past twelve at night, on top of the Astronomy Tower. She found twelve star charts, a telescope, and Imelda Pryce's atlas of the northern sky, Leipzig, 1887.
 
-Harry heard about it at breakfast. Everybody heard about it at breakfast. Imelda Pryce had burst into tears in front of the whole of Ravenclaw, and her father wrote to the *Prophet*, and Professor Sinistra went to the staff table at lunch and said something to Umbridge in a low voice that made several people at the Hufflepuff table put down their forks.
+Harry heard about it at breakfast. Everybody heard about it at breakfast. Imelda Pryce had burst into tears in front of the whole of Ravenclaw, and her father wrote to the *Prophet*. At lunch Professor Sinistra went to the staff table and said something to Umbridge in a low voice that made several people at the Hufflepuff table put down their forks.
 
 Umbridge asked him to tea on the Friday.
 
-She did not mention the Astronomy Tower. She poured his tea with milk, and gave him an iced biscuit, and asked him about the Quidditch, and he read her the whole time. The self-satisfaction was there, as always, warm as a bath. But it had gone down an inch since January, and on top of it there was something new, small and pink and very sharp.
+She didn't mention the Astronomy Tower. She poured his tea with milk and gave him an iced biscuit and asked him about the Quidditch, and he read her the whole time. The self-satisfaction was there, as always, warm as a bath. But it had sunk an inch since January, and on top of it was something new, small and pink and very sharp.
 
-It was embarrassment.
+Embarrassment.
 
-She had been made to look foolish in front of a whole house, and she did not know who had done it, and she was very carefully not thinking about the fact that the person who had sent her up the Astronomy Tower was sitting across her desk eating a biscuit.
+She'd been made to look foolish in front of a whole house. She didn't know who'd done it, and she was very carefully not thinking about the fact that the person who'd sent her up the Astronomy Tower was sitting across her desk eating a biscuit.
 
-"I wonder, dear," she said, at the end, "if you've noticed anything else."
+"I wonder, dear," she said at the end, "if you've noticed anything else."
 
 He gave her the Hufflepuff Gobstones Club, which met in an empty classroom on the ground floor on Sunday afternoons without permission, and was eleven people and a great deal of foul-smelling liquid.
 
 She searched them the next Sunday. She found Gobstones.
 
-She did not ask him to tea the Friday after.
+She didn't ask him to tea the Friday after.
 
 * * *
 
@@ -33255,7 +33311,7 @@ She did not ask him to tea the Friday after.
 
 "I know you said."
 
-They were on the lake rock, in the first week of March, in their cloaks, because it was too cold anywhere else to talk where nobody could hear. The beech over them had nothing on it. The lake was grey and flat and the squid had gone deep for the winter.
+They were on the lake rock in the first week of March, in their cloaks, because it was too cold anywhere else to talk where nobody could hear. The beech above them was bare. The lake was grey and flat, and the squid had gone deep for the winter.
 
 "And Malfoy," said Evelyn.
 
@@ -33265,43 +33321,47 @@ They were on the lake rock, in the first week of March, in their cloaks, because
 
 Harry looked at her.
 
-"He stopped about ten days ago," said Evelyn. "He used to look at you eleven or twelve times a meal. I counted, in February. He looked at you when you came in, and when you sat down, and whenever anybody spoke to you, and whenever you spoke to anybody. Now he doesn't. He looks at his plate. He looks at Parkinson. He hasn't looked at you more than twice a meal since the twenty-sixth."
+"He stopped about ten days ago," Evelyn went on. "He used to look at you eleven or twelve times a meal. I counted, in February. He looked at you when you came in, and when you sat down, and whenever anybody spoke to you, and whenever you spoke to anybody. Now he doesn't. He looks at his plate. He looks at Parkinson. He hasn't looked at you more than twice a meal since the twenty-sixth."
 
 "Perhaps he's given up."
 
 Evelyn turned her head and looked at him.
 
-"Malfoy," she said, "has never given up anything in his life. He's been trying to beat you at Quidditch for five years and he's never once caught the Snitch before you, and he still turns up to every match." She looked back at the lake. "People don't stop watching something because they've given up. They stop because they've found a better way to watch it."
+"Malfoy," she said, "has never given up anything in his life. He's been trying to beat you at Quidditch for five years and he's never once caught the Snitch before you, and he still turns up to every match."
+
+She looked back at the lake.
+
+"People don't stop watching something because they've given up. They stop because they've found a better way to watch it."
 
 Harry thought about it.
 
-He read Draco every day. He had read him every day for five years. And it was true, now that she said it, that in the last ten days what had been in Draco had changed. The cold sharp attention had gone. What was in him was ordinary again. Bored, mostly. Irritable. Afraid, at the bottom, as always, of not being good enough. And once or twice, in the evenings, a small, sore homesickness, aimed north, at a house in Wiltshire, that Draco would rather have died than let anybody see.
+He read Draco every day. He'd read him every day for five years. And now that she said it, it was true that in the last ten days what was in Draco had changed. The cold sharp attention had gone. What was in him was ordinary again. Bored, mostly. Irritable. Afraid, at the bottom, as always, of not being good enough. And once or twice in the evenings a small, sore homesickness, aimed north at a house in Wiltshire, that Draco would rather have died than let anybody see.
 
 Harry had felt the homesickness on the Tuesday, and again on the Saturday.
 
-He had looked away both times.
+He'd looked away both times.
 
-He always looked away from that one. He had looked away from it since his first year, when he had felt it at the Slytherin table on the second night of term in a boy who had just told the whole house that his father was going to buy them a new Quidditch pitch. It was not a thing anybody should have to have read. He had never told anybody he had read it, and he had never used it, and every time he felt it come up in Draco Malfoy he turned his attention somewhere else, the way you look away when somebody in a café starts to cry.
+He always looked away from that one. He'd looked away from it since his first year, when he'd felt it at the Slytherin table on the second night of term in a boy who'd just told the whole house that his father was going to buy them a new Quidditch pitch. It wasn't a thing anybody should have to have read. He'd never told anybody he'd read it, and he'd never used it. Every time he felt it rise in Draco Malfoy he turned his attention somewhere else, the way you look away when somebody in a café starts to cry.
 
 "He's homesick," said Harry. "That's all. His aunt's out. His father's busy. He's on his own."
 
 "Is he," said Evelyn.
 
-She did not make it a question.
+She didn't make it a question.
 
 * * *
 
 They met on the twentieth of March, a Wednesday, at eight o'clock.
 
-The coin went warm in Harry's pocket at lunch, and the numbers on the rim said *20.3 / 8*, and he felt, all through the Great Hall, at the Gryffindor table and the Ravenclaw table and the Hufflepuff table and three places at his own, twenty-seven small private satisfactions go off at once like lamps.
+The coin went warm in Harry's pocket at lunch, and the numbers on the rim said *20.3 / 8*. All through the Great Hall, at the Gryffindor table and the Ravenclaw table and the Hufflepuff table and three places at his own, he felt twenty-seven small private satisfactions go off at once like lamps.
 
 He left the common room at twenty to eight.
 
-He did what he always did. He went out through the stone wall alone and stood in the corridor outside and read behind him, through the wall, into the room he had left. He read who was watching the wall close. He read who had noticed him go. It was a habit, by now, as automatic as checking his pocket for his wand.
+He did what he always did. He went out through the stone wall alone and stood in the corridor outside and read behind him, through the wall, into the room he'd left. He read who was watching the wall close. He read who'd noticed him go. It was a habit by now, as automatic as checking his pocket for his wand.
 
 Nobody had noticed. Theo had, but Theo was coming at ten to.
 
-He read the corridors as he went up. He went by the long way, the one past the kitchens and up the back stairs behind the old hanging of the Hogwarts boar hunt, which nobody used after dark. He read ahead and behind on every landing. He read through walls. He had done this every Wednesday since October and he did it now without thinking, the way you look both ways crossing a road.
+He read the corridors as he went up. He went the long way, past the kitchens and up the back stairs behind the old tapestry of the Hogwarts boar hunt, which nobody used after dark. He read ahead and behind on every landing. He read through walls. He'd done this every Wednesday since October and he did it now without thinking, the way you look both ways crossing a road.
 
 On the fourth floor he felt Draco.
 
@@ -33309,35 +33369,35 @@ Draco was below him, on the third-floor landing, going the same way. Harry stopp
 
 It was the homesickness.
 
-It was larger than it had been on the Saturday. It was raw and sore and quite unbearable, and it was aimed north, and there was shame all round it, hot and young, the shame of a fifteen-year-old boy who is going up to the Owlery at a quarter to eight at night with a letter to his mother in his pocket, and who would rather do anything than be seen doing it.
+It was larger than it had been on the Saturday. Raw and sore and quite unbearable, aimed north, with shame all round it, hot and young. The shame of a fifteen-year-old boy going up to the Owlery at a quarter to eight at night with a letter to his mother in his pocket, who'd rather do anything than be seen doing it.
 
 The Owlery was in the west tower. The way to it went up these stairs as far as the fifth floor, and then left.
 
 Harry looked away.
 
-He did it the way he always did it. He turned his attention off Draco Malfoy, deliberately, the way you turn your eyes from a stranger crying in a café, and went on up the stairs, and on the fifth floor he went right, and on the seventh floor he walked past the blank stretch of wall opposite Barnabas the Barmy three times, and a plain wooden door appeared, and he went in.
+He did it the way he always did. He turned his attention off Draco Malfoy, deliberately, the way you turn your eyes from a stranger crying in a café, and went on up the stairs. On the fifth floor he went right. On the seventh floor he walked past the blank stretch of wall opposite Barnabas the Barmy three times, and a plain wooden door appeared, and he went in.
 
-He did not look behind him on the seventh floor.
+He didn't look behind him on the seventh floor.
 
-He would think about that for a long time. He would think about it in a pink office with a black quill in his hand, and at night with his scar burning, and for a long time after that. He had looked behind him on every landing for five months. He had not looked behind him on the seventh floor, because he had just felt Draco Malfoy go to the Owlery, homesick, ashamed, and he had looked away, and there was nobody else in the castle he had been afraid of.
+He'd think about that for a long time. He'd think about it in a pink office with a black quill in his hand, and at night with his scar burning, and for a long time after that. He'd looked behind him on every landing for five months. He hadn't looked behind him on the seventh floor, because he'd just felt Draco Malfoy go to the Owlery, homesick and ashamed, and he'd looked away, and there was nobody else in the castle he'd been afraid of.
 
 * * *
 
 The meeting had been going for forty minutes when the door blew in.
 
-They were doing Stunning. They had been doing Stunning for three weeks, and it was going well, and Neville had just put Zacharias Smith flat on the cushions for the first time and was standing over him looking astonished, and Luna was saying "Oh, *well* done, Neville," and Harry was laughing.
+They were doing Stunning. They'd been doing Stunning for three weeks, and it was going well. Neville had just put Zacharias Smith flat on the cushions for the first time and was standing over him looking astonished, and Luna was saying "Oh, *well* done, Neville," and Harry was laughing.
 
 He felt them a second before the door went.
 
-It was a second. It was nothing. It was eight or nine people coming along the seventh-floor corridor fast, and they were pleased, every one of them, a hot eager greedy pleasure, the pleasure of a pack that has been told where the hole is. And in the middle of them, sweet and warm and enormous, the pleasure of somebody who has been waiting for this since September.
+A second. Nothing. Eight or nine people coming along the seventh-floor corridor fast, every one of them pleased. A hot eager greedy pleasure, the pleasure of a pack that's been told where the hole is. And in the middle of them, sweet and warm and enormous, the pleasure of somebody who'd been waiting for this since September.
 
-And at the front of them, leading, there was Draco Malfoy.
+And at the front of them, leading, was Draco Malfoy.
 
 Harry read him.
 
-There was no homesickness in him. There was no shame. There had never been either. What was in Draco Malfoy, at the head of a corridor full of people, coming for the door, was triumph.
+There was no homesickness in him. There was no shame. There never had been either. What was in Draco Malfoy, at the head of a corridor full of people, coming for the door, was triumph.
 
-It was so large and so cold and so pure that Harry stood in the middle of the long room with his wand in his hand and could not move.
+It was so large and so cold and so pure that Harry stood in the middle of the long room with his wand in his hand and couldn't move.
 
 The door blew in.
 
@@ -33345,93 +33405,101 @@ The door blew in.
 
 Everybody ran.
 
-He had told them to, in October, on the first night. He had said: *if anybody ever finds this room, don't fight, don't stay, don't be brave, just go. Out the back. Out any way you can.* And the room, which gave you what you needed, had given them a back. There was a second door at the far end of the hall behind the bookshelves, small and plain, and it had been there every week since October and nobody had ever used it.
+He'd told them to, in October, on the first night. *If anybody ever finds this room, don't fight, don't stay, don't be brave, just go. Out the back. Out any way you can.* And the room, which gave you what you needed, had given them a back. There was a second door at the far end of the hall behind the bookshelves, small and plain. It had been there every week since October, and nobody had ever used it.
 
 They used it now.
 
 They went in a flood. Harry felt them go, twenty-seven terrified people, past the bookshelves and through the small door and out, he hoped, into whatever corridor the room had decided to put behind it. He felt Hermione go, white-hot with fear and fury. He felt Ron go, with Ginny by the arm. He felt Luna go, unhurried. He felt Neville start towards the back door and stop, and start again.
 
-He did not feel Evelyn go, because he never felt Evelyn. He looked for her, once, and the cushion where she had been sitting at the far end by the bookshelves was empty.
+He didn't feel Evelyn go, because he never felt Evelyn. He looked for her once, and the cushion where she'd been sitting at the far end by the bookshelves was empty.
 
 The Inquisitorial Squad came through the front door.
 
-They were Slytherins. Crabbe and Goyle and Pansy Parkinson and Warrington and Montague, and a few others, wearing small silver *I* badges on their robes, and behind them Professor Umbridge, pink, beaming, with her wand out. And at the front of all of them Draco, who had stopped just inside the door, and was looking at Harry.
+They were Slytherins. Crabbe and Goyle and Pansy Parkinson and Warrington and Montague and a few others, wearing small silver *I* badges on their robes. Behind them came Professor Umbridge, pink, beaming, with her wand out. And at the front of all of them was Draco, who'd stopped just inside the door and was looking at Harry.
 
 Harry did the only thing there was.
 
 He turned round, to the back of the room, to the small door with the last of them pouring through it, and he put a wall across it.
 
-He put it into eight minds at once. Crabbe's and Goyle's and Pansy's and Warrington's and Montague's, and the others', and Umbridge's, and Draco's. He did not hide the people. There was no time to build them all. He hid the door. He made the far end of the room a wall of bookshelves, solid, floor to ceiling, with no door in it at all, and he held it in eight heads against the eager greedy push of eight people who wanted very much to get past him.
+He put it into eight minds at once. Crabbe's and Goyle's and Pansy's and Warrington's and Montague's and the others', and Umbridge's, and Draco's. He didn't hide the people. There was no time to build them all. He hid the door. He made the far end of the room a wall of bookshelves, solid, floor to ceiling, with no door in it at all. He held it in eight heads against the eager greedy push of eight people who very much wanted to get past him.
 
 It was like holding a door in a gale. It was like the dragon.
 
 He held it.
 
-He felt the last of them go through. Neville, at the end, who had stopped twice. Theo, who had waited at the back door until everybody else was through, the way he had once kept a window open. And Millicent.
+He felt the last of them go through. Neville, at the end, who'd stopped twice. Theo, who'd waited at the back door until everybody else was through, the way he'd once kept a window open. And Millicent.
 
-Millicent did not go through.
+Millicent didn't go through.
 
-Harry felt her not go. He felt her stop at the back door and turn round. He felt what was in her, which was the thing that had been in her since a girls' bathroom with a troll on its way and *I'd sit on them*, and he wanted to shout at her to go and could not, because if he opened his mouth he would lose the wall.
+Harry felt her not go. He felt her stop at the back door and turn round. He felt what was in her, which was what had been in her since a girls' bathroom with a troll on its way and *I'd sit on them*. He wanted to shout at her to go and couldn't, because if he opened his mouth he'd lose the wall.
 
 Millicent walked back down the room, past him, and sat on Goyle.
 
-She did it quite deliberately. Goyle had got furthest. He had got halfway down the room towards the wall of bookshelves that was not there, and Millicent walked up to him and put him on the floor and sat on his chest, and he made a noise like a bag of sand being dropped.
+She did it quite deliberately. Goyle had got furthest. He'd got halfway down the room towards the wall of bookshelves that wasn't there, and Millicent walked up to him and put him on the floor and sat on his chest, and he made a noise like a bag of sand being dropped.
 
-"Hello," said Millicent to Umbridge. "I'm in it too."
+"Hello," Millicent said to Umbridge. "I'm in it too."
 
 * * *
 
-He held the wall until the last of them was gone and the small door had closed itself and disappeared, and then he let it go, and the far end of the room went back to being a blank stretch of wall, and the illusion and the door were gone together.
+He held the wall until the last of them was gone and the small door had closed itself and disappeared. Then he let it go. The far end of the room went back to being a blank stretch of wall, and the illusion and the door were gone together.
 
 His nose was bleeding.
 
 He wiped it on his sleeve. He turned round.
 
-Umbridge was looking at him. She was standing among the cushions, with her wand out and her clipboard under her arm, and she was looking at him with an expression he had not seen on her face before.
+Umbridge was looking at him. She was standing amongst the cushions with her wand out and her clipboard under her arm, and she was looking at him with an expression he'd never seen on her face before.
 
 Harry read her.
 
-He had expected anger. There was anger, but it was not on the top. On the top there was something so unexpected that for a moment he thought he had read her wrong.
+He'd expected anger. There was anger, but it wasn't on the top. On the top was something so unexpected that for a moment he thought he'd read her wrong.
 
 She was hurt.
 
-She was hurt the way a child is hurt. It was simple and enormous and it was aimed straight at him, and it had no sweetness in it at all. She had poured him tea with milk. She had given him iced biscuits in a pink napkin. She had shown him a Decree before anybody else in the school had seen it and asked for his opinion, as a sensible young man. And he had sat across her desk every Friday since September with his good manners and his polite smile and lied to her, all of it, every word, the whole time.
+Hurt the way a child is hurt. Simple and enormous, aimed straight at him, without any sweetness in it at all. She'd poured him tea with milk. She'd given him iced biscuits in a pink napkin. She'd shown him a Decree before anybody else in the school had seen it and asked his opinion, as a sensible young man. And he'd sat across her desk every Friday since September with his good manners and his polite smile and lied to her, all of it, every word, the whole time.
 
-She had liked him.
+She'd liked him.
 
-She had liked him very much.
+She'd liked him very much.
 
-Harry looked at Dolores Umbridge, standing in the middle of a secret army in a hidden room with her mouth trembling, as wounded as a girl whose best friend has told everybody her secret, and found that it was almost funny.
+Harry looked at Dolores Umbridge, standing in the middle of a secret army in a hidden room with her mouth trembling, as wounded as a girl whose best friend has told everybody her secret, and found it was almost funny.
 
-He did not laugh. He was very careful not to laugh.
+He didn't laugh. He was very careful not to laugh.
 
-"Mr Potter," she said. Her voice was not quite steady. "You will come with me."
+"Mr Potter," she said. Her voice wasn't quite steady. "You will come with me."
 
 * * *
 
 He saw Draco on the way out.
 
-Draco was standing by the door, with his silver *I* on his chest, and Harry stopped in front of him, because he could not help it.
+Draco was standing by the door with his silver *I* on his chest, and Harry stopped in front of him, because he couldn't help it.
 
-He read him. The triumph was still there. It had gone down a little now, from the top, but it was all through him, cold and very clean. And under it there was the thing that was always at the bottom of Draco Malfoy, and it had changed again. It was not aimed at a churchyard, or at a gaunt woman in the *Prophet*. For the first time in five years, it was aimed at nothing at all.
+He read him. The triumph was still there. It had dropped a little now, from the top, but it was all through him, cold and very clean. And beneath it was what was always at the bottom of Draco Malfoy, and it had changed again. It wasn't aimed at a churchyard, or at a gaunt woman in the *Prophet*. For the first time in five years, it was aimed at nothing at all.
 
-He had been good enough.
+He'd been good enough.
 
 "The Owlery," said Harry.
 
 Draco smiled. It was his father's smile, a little, and his own.
 
-"You always look away," he said. "Did you know that? When I'm homesick. Every time. Since first year. You get this look, as though you've walked in on somebody in the bath, and you turn round." He leaned in a little. "I worked it out at Christmas. I sat in my room at the Manor and I thought, what does Potter never look at? And it was that. So I gave you that."
+"You always look away," he said. "Did you know that? When I'm homesick. Every time. Since first year. You get this look, as though you've walked in on somebody in the bath, and you turn round."
 
-Harry did not say anything.
+He leaned in a little.
 
-"You can't feel the difference, can you?" said Draco. "Between me feeling it and me *doing* it. I practised for six weeks. In the mirror. I thought about my mother in the morning room with nobody to talk to, and I let it come up, and I held it there, and I thought about something else at the same time." He was very pleased. "It's not that hard. You'd be surprised."
+"I worked it out at Christmas. I sat in my room at the Manor and I thought, what does Potter never look at? And it was that. So I gave you that."
+
+Harry kept his face still.
+
+"You can't feel the difference, can you?" said Draco. "Between me feeling it and me *doing* it. I practised for six weeks. In the mirror. I thought about my mother in the morning room with nobody to talk to, and I let it come up, and I held it there, and I thought about something else at the same time."
+
+He was very pleased.
+
+"It's not that hard. You'd be surprised."
 
 "No," said Harry. "I wouldn't."
 
-Draco looked at him for a moment longer.
+Draco looked at him a moment longer.
 
-"Mr Malfoy," said Umbridge, from the corridor. "Bring him."
+"Mr Malfoy," Umbridge called from the corridor. "Bring him."
 
 * * *
 
@@ -33439,25 +33507,29 @@ They were all in her office. Fudge in his pinstriped cloak, red and delighted. A
 
 And Dumbledore.
 
-He was sitting in the chintz armchair from Courtroom Ten. Or one exactly like it. He was sitting in it by the fire, in Umbridge's pink office, with his long hands folded and the kitten plates mewing on the wall behind him, and he looked up when Harry came in, and his face was quite calm.
+He was sitting in the chintz armchair from Courtroom Ten. Or one exactly like it. He sat in it by the fire in Umbridge's pink office, his long hands folded and the kitten plates mewing on the wall behind him. He looked up when Harry came in, and his face was quite calm.
 
 Harry read the room.
 
-Fudge was triumphant. It came off him in waves, the brisk pleased thing from the hearing, back, larger, the pleasure of a man who has waited eight months to be proved right and has been. Dawlish was dutiful and bored. Percy was thrilled. Kingsley was calm, the deep river kind of calm, and under it, quite quick, moving, there was something that was thinking very hard indeed.
+Fudge was triumphant. It came off him in waves, the brisk pleased thing from the hearing, back and larger, the pleasure of a man who's waited eight months to be proved right and has been. Dawlish was dutiful and bored. Percy was thrilled. Kingsley was calm, the deep river kind of calm, and beneath it, quite quick, moving, was something thinking very hard indeed.
 
 Dumbledore was closed.
 
 "Well," said Fudge. "Well, well, well. Dolores tells me you've been very busy, Potter."
 
-Harry did not say anything.
+Harry said nothing.
 
-"A secret society," said Fudge. "In this school. Under Decree Twenty-Four. Learning to *fight*. Learning to fight whom, Potter? The Ministry?" He turned to Dumbledore. "And I suppose you knew nothing about it, Albus?"
+"A secret society," said Fudge. "In this school. Under Decree Twenty-Four. Learning to *fight*. Learning to fight whom, Potter? The Ministry?"
+
+He turned to Dumbledore.
+
+"And I suppose you knew nothing about it, Albus?"
 
 "On the contrary," said Dumbledore. "I knew everything about it."
 
 The room went quiet.
 
-Harry read it go quiet. He read Fudge's triumph stop, all at once, the way a cart stops when it runs into a wall, and then start again, faster, larger, with a wild greedy disbelief on top of it.
+Harry read it go quiet. He read Fudge's triumph stop all at once, the way a cart stops when it hits a wall, and then start again, faster and larger, with a wild greedy disbelief on top of it.
 
 "You *knew*…"
 
@@ -33465,13 +33537,21 @@ Harry read it go quiet. He read Fudge's triumph stop, all at once, the way a car
 
 Harry looked at him.
 
-It was not true. Dumbledore had not known about the room until October, when Harry had told him, in two words on a piece of parchment, *teaching, Wednesdays*, and Dumbledore had never replied. It was not true at all, and Dumbledore said it in a calm, clear, amiable voice, looking at the Minister for Magic across a pink office, and Harry could not feel anything from him to tell him why.
+It wasn't true. Dumbledore hadn't known about the room until October, when Harry had told him in two words on a piece of parchment, *teaching, Wednesdays*, and Dumbledore had never replied. It wasn't true at all, and Dumbledore said it in a calm, clear, amiable voice, looking at the Minister for Magic across a pink office, and Harry couldn't feel anything from him to tell him why.
 
-"Albus," said Kingsley, from the window, quite quietly.
+"Albus," said Kingsley quite quietly from the window.
 
-"No, Kingsley. Thank you. The boy was acting on my instructions. The others were acting on his. If anybody is to answer for it, it is I." Dumbledore smiled at Fudge. "Shall we say it was Dumbledore's group, Cornelius? It has a certain ring."
+"No, Kingsley. Thank you. The boy was acting on my instructions. The others were acting on his. If anybody is to answer for it, it is I."
 
-"*Weasley*," said Fudge. "Write that down. All of it. Albus Dumbledore has just confessed to conspiring against the Ministry." He turned to Dawlish. His face was shining. "Dawlish, Shacklebolt, take him. He'll go to Azkaban to await trial. I think the Wizengamot will want to hear this one."
+Dumbledore smiled at Fudge.
+
+"Shall we say it was Dumbledore's group, Cornelius? It has a certain ring."
+
+"*Weasley*," said Fudge. "Write that down. All of it. Albus Dumbledore has just confessed to conspiring against the Ministry."
+
+He turned to Dawlish. His face was shining.
+
+"Dawlish, Shacklebolt, take him. He'll go to Azkaban to await trial. I think the Wizengamot will want to hear this one."
 
 "Ah," said Dumbledore. "Yes. I thought we might hit that snag."
 
@@ -33483,33 +33563,37 @@ It was not true. Dumbledore had not known about the room until October, when Har
 
 It was very fast.
 
-Harry did not see all of it. He saw Dawlish raise his wand. He saw Kingsley raise his, at the same moment, and point it, Harry could have sworn, not at Dumbledore but very slightly to one side of him. He saw Dumbledore stand up out of the chintz armchair, not quickly, as though he had all the time in the world, and lift his own wand.
+Harry didn't see all of it. He saw Dawlish raise his wand. He saw Kingsley raise his at the same moment and point it, Harry could have sworn, not at Dumbledore but very slightly to one side of him. He saw Dumbledore rise from the chintz armchair, not quickly, as though he had all the time in the world, and lift his own wand.
 
 There was a flash of silver light and a bang, and the floor shook, and a hand came down on the back of Harry's neck and pushed him flat on the pink carpet.
 
 He lay with his face in the carpet for a second and a half.
 
-When he looked up, everybody in the room was on the floor except Dumbledore. Fudge was on his back, out cold, with his bowler hat beside him. Dawlish was slumped against the wall. Percy was under the desk. Umbridge was in a heap of pink by the window. Kingsley was on the floor too, lying with his eyes closed and his face very peaceful, and Harry read him and found that he was entirely awake.
+When he looked up, everybody in the room was on the floor except Dumbledore. Fudge was on his back, out cold, his bowler hat beside him. Dawlish was slumped against the wall. Percy was under the desk. Umbridge was a heap of pink by the window. Kingsley was on the floor too, lying with his eyes closed and his face very peaceful, and Harry read him and found he was entirely awake.
 
-Dumbledore was standing in the middle of the room.
+Dumbledore stood in the middle of the room.
 
-He looked down at Harry. He did not smile.
+He looked down at Harry. He didn't smile.
 
-"Listen to me," he said. Very low, very fast. "You must not try to go into his mind any more. You must close it. Every night. Read Quaid. Chapter four. Do you hear me?"
+"Listen to me," he said, very low and very fast. "You must not try to go into his mind any more. You must close it. Every night. Read Quaid. Chapter four. Do you hear me?"
 
 "Sir…"
 
-"He has seen you there. I believe he will use it. When I am not here to stand between you." He glanced at the fireplace. Something was moving in the flames. "I am sorry, Harry. I have been sorry a great deal this year. I find it does not get easier with practice."
+"He has seen you there. I believe he will use it. When I am not here to stand between you."
+
+He glanced at the fireplace. Something was moving in the flames.
+
+"I am sorry, Harry. I have been sorry a great deal this year. I find it does not get easier with practice."
 
 Fawkes came out of the fire.
 
-He came out in a burst of gold and scarlet, wings spread, and he swept once round the pink office, and the kitten plates went dark with soot as he passed them, and Dumbledore lifted his hand and took hold of the long golden tail.
+He came out in a burst of gold and scarlet, wings spread, and swept once round the pink office. The kitten plates went dark with soot as he passed them. Dumbledore lifted his hand and took hold of the long golden tail.
 
 Harry read him.
 
-He could, for that one moment. He did not know whether Dumbledore had opened on purpose or simply did not have time to stay shut. But for the one second between taking hold of the phoenix's tail and going, Albus Dumbledore was open, and what came off him, filling the pink office to its frilled lampshades, was delight.
+He could, for that one moment. He didn't know whether Dumbledore had opened on purpose or simply didn't have time to stay shut. But for the one second between taking hold of the phoenix's tail and going, Albus Dumbledore was open, and what came off him, filling the pink office to its frilled lampshades, was delight.
 
-Grim delight. Hard and dark and gleeful, the delight of an old man who has been told for eight months to sit still and keep quiet, and has just knocked the Minister for Magic flat on a pink carpet, and would not, for anything in the world, have missed it.
+Grim delight. Hard and dark and gleeful. The delight of an old man who'd been told for eight months to sit still and keep quiet, and had just knocked the Minister for Magic flat on a pink carpet, and wouldn't, for anything in the world, have missed it.
 
 There was a flash of fire.
 
@@ -33519,9 +33603,9 @@ He was gone.
 
 Educational Decree Number Twenty-Eight went up on the wall of the entrance hall the next morning. It said that Dolores Jane Umbridge, High Inquisitor, had replaced Albus Dumbledore as Head of Hogwarts School of Witchcraft and Wizardry.
 
-The gargoyle would not let her into the headmaster's office.
+The gargoyle wouldn't let her into the headmaster's office.
 
-Everybody knew that by lunch. She had gone up to it at nine and said the password, and the gargoyle had not moved, and she had said it again, and the gargoyle had not moved, and she had blasted it, and it had not moved, and she had been seen coming back down the corridor with her face pink and her wand shaking.
+Everybody knew that by lunch. She'd gone up to it at nine and said the password, and the gargoyle hadn't moved. She'd said it again, and the gargoyle hadn't moved. She'd blasted it, and it hadn't moved, and she'd been seen coming back down the corridor with her face pink and her wand shaking.
 
 She set up in her own office instead. She made the Inquisitorial Squad official. She took twenty points from Gryffindor before lunch for nothing anybody could identify.
 
@@ -33531,21 +33615,21 @@ Fred and George Weasley left on the Friday afternoon.
 
 They did it during the last lesson of the day, at a quarter past three, and Harry was in History of Magic when it began.
 
-He felt it before he heard it. He felt it come up through the castle from the entrance hall like a sudden change in the weather. It was surprise, very large, and then it was something else, larger, spreading outwards from the ground floor up through every staircase and corridor and classroom faster than any noise could have travelled.
+He felt it before he heard it. He felt it rise through the castle from the entrance hall like a sudden change in the weather. Surprise, very large, and then something else, larger, spreading outwards from the ground floor up through every staircase and corridor and classroom faster than any noise could have travelled.
 
 Then the noise came.
 
-It was a bang, and then a series of bangs, and a whistle going up and up and up, and a great rushing roar like a train going through a station, and Professor Binns, who was dead, went on talking about goblin rebellions of the fourteenth century in exactly the same voice, and the whole class got up and went to the window.
+A bang, and then a series of bangs, and a whistle climbing up and up and up, and a great rushing roar like a train going through a station. Professor Binns, who was dead, went on talking about goblin rebellions of the fourteenth century in exactly the same voice, and the whole class got up and went to the window.
 
 There were fireworks in the courtyard.
 
-There were fireworks everywhere. There were dragons made of green and gold sparks, forty feet long, flying up the outside of the castle and round the towers and back down again, roaring. There were Catherine wheels five feet across spinning along the corridors at head height, whining. There were rockets with long tails of silver stars bouncing off the walls, and sparklers that wrote rude words in the air by themselves, and one firecracker, small and pink, that every time somebody tried to Vanish it exploded into ten more.
+There were fireworks everywhere. Dragons made of green and gold sparks, forty feet long, flying up the outside of the castle and round the towers and back down again, roaring. Catherine wheels five feet across spinning along the corridors at head height, whining. Rockets with long tails of silver stars bouncing off the walls, and sparklers that wrote rude words in the air by themselves, and one firecracker, small and pink, that exploded into ten more every time somebody tried to Vanish it.
 
-And over the entrance hall, on two brooms, hovering, with their old school robes flapping, were Fred and George Weasley.
+And over the entrance hall, on two brooms, hovering, their old school robes flapping, were Fred and George Weasley.
 
 Harry went down.
 
-Everybody went down. They came down out of every classroom in the castle, every year, every house, and stood on the marble staircase and along the walls and in the doorways, and looked at the twins, and at Professor Umbridge, who was standing at the bottom of the stairs with her wand out and her face the colour of a beetroot and three Catherine wheels going round her head.
+Everybody went down. They came down out of every classroom in the castle, every year, every house, and stood on the marble staircase and along the walls and in the doorways. They looked at the twins, and at Professor Umbridge, who was standing at the bottom of the stairs with her wand out and her face the colour of a beetroot and three Catherine wheels going round her head.
 
 "We'd love to stay," said Fred.
 
@@ -33557,33 +33641,33 @@ Everybody went down. They came down out of every classroom in the castle, every 
 
 "Special discount for anybody who promises to use our products on the old toad," said Fred.
 
-And they looked up, both of them, at the same moment, at Harry, on the staircase, and grinned, and lifted a hand each.
+And they looked up, both of them, at the same moment, at Harry on the staircase, and grinned, and lifted a hand each.
 
-Then they kicked off and went out through the great front doors into the grey March afternoon, very fast, and turned in a wide curve over the lawn and went up, and up, and away over the forest towards the south, and were gone.
+Then they kicked off and shot out through the great front doors into the grey March afternoon, very fast. They turned in a wide curve over the lawn and climbed, and climbed, and away over the forest towards the south, and were gone.
 
 Harry read the castle.
 
-He did it from the marble staircase, with Theo on one side of him and Millicent on the other, and he did not turn anything down.
+He did it from the marble staircase, with Theo on one side of him and Millicent on the other, and he didn't turn anything down.
 
 The whole of Hogwarts was laughing.
 
-It was laughing all at once, every one of them, a thousand people on the stairs and in the doorways and along the walls, and it was the same thing in all of them, plain and loud and helpless and very, very large. It came up through the castle and filled it from the dungeons to the towers. Even the Squad. Even, in two or three places along the Slytherin wall, under the badges, faintly, ashamed of itself.
+Laughing all at once, every one of them, a thousand people on the stairs and in the doorways and along the walls, and it was the same thing in all of them, plain and loud and helpless and very, very large. It rose through the castle and filled it from the dungeons to the towers. Even the Squad. Even, in two or three places along the Slytherin wall, beneath the badges, faintly, ashamed of itself.
 
-It was the best noise he had heard in months.
+It was the best noise he'd heard in months.
 
-He stood on the stairs with fireworks going over his head and let it go through him, all of it, and did not turn it down at all.
+He stood on the stairs with fireworks going over his head and let it go through him, all of it, and didn't turn it down at all.
 
 * * *
 
 Umbridge's first detention was on the following Monday.
 
-She did not smile when he came in. That was the first thing he noticed. She was sitting behind her desk in her pink office with the kitten plates, and on the desk in front of the chair there was a sheet of parchment and a long, thin black quill, and she did not smile.
+She didn't smile when he came in. That was the first thing he noticed. She was sitting behind her desk in her pink office with the kitten plates. On the desk in front of the chair lay a sheet of parchment and a long, thin black quill, and she didn't smile.
 
 "Sit down, Mr Potter."
 
 He sat down.
 
-He read her. The hurt was still there, under everything, where it had gone on the night in the Room. It had not healed. It had set. And on top of it, now, the sweet domestic pleasure was back, all of it, larger than he had ever felt it, and for the first time it was aimed straight at him.
+He read her. The hurt was still there, beneath everything, where it had gone on the night in the Room. It hadn't healed. It had set. And on top of it now the sweet domestic pleasure was back, all of it, larger than he'd ever felt it, and for the first time it was aimed straight at him.
 
 She was going to enjoy this.
 
@@ -33595,21 +33679,21 @@ She was going to enjoy this.
 
 He picked up the quill.
 
-He wrote it. *I must not tell lies.* And on the back of his right hand, as he wrote, the words appeared, as though they had been cut in with a scalpel, and he felt them, a sharp fine specific pain with edges, and then they healed over, and were gone, leaving the skin red.
+He wrote it. *I must not tell lies.* And on the back of his right hand, as he wrote, the words appeared, as though cut in with a scalpel. He felt them, a sharp fine specific pain with edges. Then they healed over and were gone, leaving the skin red.
 
 He wrote it again.
 
-He wrote it for three hours that night, and three hours on the Tuesday, and three on the Wednesday, and on the Wednesday the words on the back of his hand stopped healing between lines and stayed, red and raw, *I must not tell lies*, in his own handwriting, very small and very neat.
+He wrote it for three hours that night, and three hours on the Tuesday, and three on the Wednesday. On the Wednesday the words on the back of his hand stopped healing between lines and stayed, red and raw, *I must not tell lies*, in his own handwriting, very small and very neat.
 
 He found it funny.
 
-He did not let her see that. He did not let anything at all happen in his face for nine hours over three nights, and she watched him, and read nothing, because she was not a reader. But he found it funny, privately, at the bottom of himself, the way you find something funny in church.
+He didn't let her see that. He didn't let anything at all happen in his face for nine hours over three nights. She watched him and read nothing, because she wasn't a reader. But privately, at the bottom of himself, he found it funny, the way you find something funny in church.
 
 *I must not tell lies.*
 
 Of all the things she could have chosen. Of all the people in the castle.
 
-He thought about Neville's hand on the stairs in October. He thought about his ledger, the new one, which was hers. He wrote it in the back of his Potions book that night, under the other things, in his own small neat handwriting, beside a line that just said *Neville. I must respect the Ministry.*
+He thought about Neville's hand on the stairs in October. He thought about his list, the new one, which was hers. That night he wrote it in the back of his Potions book, beneath the other things, in his own small neat handwriting, beside a line that said only *Neville. I must respect the Ministry.*
 
 *Me. I must not tell lies.*
 
@@ -33621,53 +33705,59 @@ He thought it was probably fair.
 
 The scar got worse after Dumbledore left.
 
-He had been told to close it. He had been told by Dumbledore, on a pink carpet, very fast, in a voice he had never heard him use: *You must not try to go into his mind any more. You must close it. Every night.* And he did. He read Orla Quaid's fourth chapter until he knew it by heart, the discipline of the empty room, and every night he lay in his four-poster with the curtains drawn and did what it said. He emptied the room. He shut the windows. He sat in the empty room in his head and did not reach for the door in his forehead.
+He'd been told to close it. He'd been told by Dumbledore on a pink carpet, very fast, in a voice he'd never heard him use. *You must not try to go into his mind any more. You must close it. Every night.* And he did. He read Orla Quaid's fourth chapter until he knew it by heart, the discipline of the empty room. Every night he lay in his four-poster with the curtains drawn and did what it said. He emptied the room. He shut the windows. He sat in the empty room in his head and didn't reach for the door in his forehead.
 
-He did not go in.
+He didn't go in.
 
-He did not go in once, after the twentieth of March. He was very careful. He was more careful than he had been about anything in his life.
+He didn't go in once, after the twentieth of March. He was very careful. More careful than he'd been about anything in his life.
 
-It did not matter.
+It didn't matter.
 
-He had gone in, every night for a fortnight in December, on purpose, along the same path, through the same door. He had worn it smooth. And now he had stopped, and the door was still there, and the path was still there, worn smooth, going both ways.
+He'd gone in every night for a fortnight in December, on purpose, along the same path, through the same door. He'd worn it smooth. Now he'd stopped, and the door was still there, and the path was still there, worn smooth, going both ways.
 
 It came in on him instead.
 
-It came in at night, at first. He would be asleep, or nearly asleep, in the empty room, with the windows shut, and the door would open on its own, and something would come through. Not much. A feeling. Satisfaction, cold and patient. Anger, sudden and enormous, there and gone. Once, very late, a long slow pleasure that went on and on and that he did not want to know the reason for.
+It came at night at first. He'd be asleep, or nearly asleep, in the empty room with the windows shut, and the door would open on its own and something would come through. Not much. A feeling. Satisfaction, cold and patient. Anger, sudden and enormous, there and gone. Once, very late, a long slow pleasure that went on and on, and he didn't want to know the reason for it.
 
-Then it came in by day.
+Then it came by day.
 
-It came in at breakfast, and in Potions, and on the Quidditch pitch, in the middle of a dive, so that he pulled out of it forty feet too early and Draco caught the Snitch for the first time in five years. It came in while he was talking to Evelyn on the lake rock, and she looked at him and said, "Where did you go?" and he said, "Nowhere," and she said, "You were nowhere for eleven seconds."
+It came at breakfast, and in Potions, and on the Quidditch pitch in the middle of a dive, so that he pulled out of it forty feet too early and Draco caught the Snitch for the first time in five years. It came whilst he was talking to Evelyn on the lake rock.
+
+"Where did you go?" she asked.
+
+"Nowhere," he said.
+
+"You were nowhere for eleven seconds."
 
 He dreamed of the corridor every night now.
 
-The long windowless corridor, and the black door at the end of it. He had dreamed it all summer. He had been a snake in it in December. Now he walked along it every night, faster each time, and every night he got a little nearer to the door, and every night, just before he reached it, he woke.
+The long windowless corridor and the black door at the end of it. He'd dreamed it all summer. He'd been a snake in it in December. Now he walked along it every night, faster each time. Every night he got a little nearer the door, and every night, just before he reached it, he woke.
 
-He did not tell anybody. He thought about telling Evelyn and did not. He thought about writing to Dumbledore, who was gone, and nobody knew where.
+He didn't tell anybody. He thought about telling Evelyn and didn't. He thought about writing to Dumbledore, who was gone, and nobody knew where.
 
 He did the empty room.
 
-It did not help.
+It didn't help.
 
 * * *
 
-On the night of the eleventh of April, at twenty past two, he woke up in the dark with his hand over his scar, and lay still, and found that there was a feeling in him that was not his.
+On the night of the eleventh of April, at twenty past two, he woke in the dark with his hand over his scar and lay still, and found there was a feeling in him that wasn't his.
 
-Not satisfaction. Not anger. Not the long slow pleasure that he did not want to know about.
+Not satisfaction. Not anger. Not the long slow pleasure he didn't want to know about.
 
-This was quieter than any of those. It was very steady. It was coming through the door in his forehead the way a draught comes under a door in winter, thin and cold and continuous, and it did not stop, and it did not change, and it went on.
+This was quieter than any of those. Very steady. It came through the door in his forehead the way a draught comes under a door in winter, thin and cold and continuous. It didn't stop, and it didn't change, and it went on.
 
 He lay there and tried to name it.
 
-He had named feelings all his life. He had named them in Dudley and Uncle Vernon and Aunt Petunia, in Quirrell and Tom and Lockhart, in Snape and Sirius and Dumbledore, in a Wizengamot and a Hall and a whole laughing castle. He was better at it than anybody alive. He lay in the green dark with the lake moving against the windows and Theo breathing in the next bed, and he went down into the cold steady thing coming in under the door, and he looked at it, and he named it.
+He'd named feelings all his life. He'd named them in Dudley and Uncle Vernon and Aunt Petunia, in Quirrell and Tom and Lockhart, in Snape and Sirius and Dumbledore, in a Wizengamot and a Hall and a whole laughing castle. He was better at it than anybody alive. He lay in the green dark with the lake moving against the windows and Theo breathing in the next bed, and he went down into the cold steady thing coming in under the door, and looked at it, and named it.
 
 It was the feeling of somebody laying things out.
 
-Somebody very patient, at a table, setting out objects in a row, one after another, carefully, in the right order, the way you lay out tools before a job. Somebody counting them. Somebody who had been waiting a very long time and did not have to wait much longer.
+Somebody very patient, at a table, setting out objects in a row, one after another, carefully, in the right order, the way you lay out tools before a job. Somebody counting them. Somebody who'd been waiting a very long time and didn't have to wait much longer.
 
-It was preparation.
+Preparation.
 
-It was not his. It had never been his.
+It wasn't his. It had never been his.
 
 And it was nearly finished.
 
