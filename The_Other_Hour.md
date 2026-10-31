@@ -44917,19 +44917,19 @@ He didn't wonder whose.
 
 He knew who she was by about four o'clock that afternoon.
 
-It came back the way feeling comes back into a foot you have been sitting on, a little at a time and then all at once, and when it came he was sitting on the end of his camp bed in the projection room at the Majestic with his boots still on and the snow melted off them into two dark puddles on the floor, and she was sitting on the end of hers, opposite him, with her hands in her lap, watching him.
+It came back the way feeling comes back into a foot you've been sitting on, a little at a time and then all at once, and when it came he was sitting on the end of his camp bed in the projection room at the Majestic with his boots still on and the snow melted off them into two dark puddles on the floor, and she was sitting on the end of hers, opposite him, hands in her lap, watching him.
 
-He did not know how he had got there.
+He didn't know how he'd got there.
 
-He knew it in the ordinary way, afterwards, because Ron told him. She had stood at the foot of the post office steps in Hogsmeade for nine minutes. Then she had gone up the steps and taken him by the arm, quite hard, the way she had taken him by the collar in a drawing room in Wiltshire, and said *we're going now*, and he had let her, because it was easier than not. She had walked him up the lane between the hedges to the place where you could Apparate. He had brought the apple core with him. He had still had it in his hand when they landed in the alley.
+He knew it in the ordinary way afterwards, because Ron told him. She'd stood at the foot of the post office steps in Hogsmeade for nine minutes. Then she'd gone up the steps and taken him by the arm, quite hard, the way she'd taken him by the collar in a drawing room in Wiltshire, and said *we're going now*, and he'd let her, because it was easier than not. She'd walked him up the lane between the hedges to the place where you could Apparate. He'd brought the apple core with him. He'd still had it in his hand when they landed in the alley.
 
-He did not remember any of it.
+He didn't remember any of it.
 
-He remembered the step. He remembered the snow coming down, and the fourteen, and the flowers. He remembered a plain girl in a grey cardigan at the bottom of the steps whom he had not known, and had smiled at. And then he was sitting on a camp bed in Leeds at four in the afternoon, and the girl was sitting opposite him, and he looked at her, and she was Evelyn.
+He remembered the step. He remembered the snow coming down, and the fourteen, and the flowers. He remembered a plain girl in a grey cardigan at the bottom of the steps whom he hadn't known, and had smiled at. And then he was sitting on a camp bed in Leeds at four in the afternoon, and the girl was sitting opposite him, and he looked at her, and she was Evelyn.
 
 "Selwyn," he said.
 
-She did not say anything for a moment.
+She was quiet for a moment.
 
 "Yes," she said.
 
@@ -44939,13 +44939,13 @@ She did not say anything for a moment.
 
 "I'm sorry."
 
-She looked at him. He could not read her. He never could. He looked at her face and found nothing in it, as always, and for the first time in six years the nothing did not feel like rest. It felt like a wall with something behind it that he did not want to see.
+She looked at him. He couldn't read her. He never could. He looked at her face and found nothing in it, as always, and for the first time in six years the nothing didn't feel like rest. It felt like a wall with something behind it he didn't want to see.
 
 "It's all right," said Evelyn.
 
-It was the first lie he had ever caught her in. He knew it was a lie the way he knew when a step was missing. He did not say so.
+It was the first lie he'd ever caught her in. He knew it was a lie the way he knew when a step was missing. He didn't say so.
 
-He put his glove back on. He had been holding it in his left hand since Hogsmeade, without knowing, and his right hand was still blue across the knuckles. He put the glove on, and lay down on the camp bed with his boots on, and turned his face to the wall, and was asleep before she had moved.
+He put his glove back on. He'd been holding it in his left hand since Hogsmeade without knowing, and his right hand was still blue across the knuckles. He put the glove on, lay down on the camp bed with his boots on, turned his face to the wall, and was asleep before she'd moved.
 
 * * *
 
@@ -44953,19 +44953,19 @@ The fourteen men stood in the high street at Hogsmeade for three days.
 
 Harry learned that from the radio. Kingsley came on the pirate programme on the Saturday night, very late, with the password *Lockhart*, and spoke for four minutes in the deep slow voice, and the four of them sat round Ron's wireless on the floor of the projection room and listened.
 
-The Order had tried to move them, said Kingsley. On the Thursday, and again on the Friday. Nobody could. They could not be woken. They could not be Stunned out of it or Enervated out of it, or even carried, because the moment anybody laid a hand on one of them he screamed, and went on screaming, and did not stop until he was let go. Healers had come from St Mungo's on the Friday night, two of them, in secret, and gone away again white. There was no counter-charm. There was nothing there to counter. Whatever had been done to them, they were doing it to themselves now.
+The Order had tried to move them, said Kingsley. On the Thursday, and again on the Friday. Nobody could. They couldn't be woken. They couldn't be Stunned out of it or Enervated out of it, or even carried, because the moment anyone laid a hand on one of them he screamed, and went on screaming, and didn't stop until he was let go. Two Healers had come from St Mungo's on the Friday night in secret and gone away again white. There was no counter-charm. There was nothing there to counter. Whatever had been done to them, they were doing it to themselves now.
 
-The snow had gone on falling, on and off, all of Thursday and Friday.
+The snow had gone on falling, on and off, all Thursday and Friday.
 
-On the Saturday morning, said Kingsley, the youngest of them had sat down in the gutter outside Scrivenshaft's, still holding his own wrist. By the afternoon he had stopped laughing. By the evening the others had begun to sit down, one after another, in the snow.
+On the Saturday morning, said Kingsley, the youngest of them had sat down in the gutter outside Scrivenshaft's, still holding his own wrist. By the afternoon he'd stopped laughing. By the evening the others had begun to sit down, one after another, in the snow.
 
 None of them had got up.
 
-The radio went quiet. Then Lee Jordan's voice came back, quite subdued, and read the names of the eleven villagers who had died, and the name of Gilderoy Lockhart, Order of Merlin Third Class, who had held the bridge, and the programme played a song, and went off the air.
+The radio went quiet. Then Lee Jordan's voice came back, quite subdued, and read the names of the eleven villagers who'd died, and the name of Gilderoy Lockhart, Order of Merlin Third Class, who'd held the bridge, and the programme played a song and went off the air.
 
-Nobody in the projection room said anything.
+The projection room was very quiet.
 
-Harry read them. He did it without deciding to, the way he did everything now. Ron was horrified, and the horror was aimed at the wireless, and under it, close to the top, he was trying very hard not to look across the floor at Harry. Hermione was horrified too, more quietly. And under the horror, a long way down, she was frightened, and the fear was aimed at Harry, and she had not let herself know it yet.
+Harry read them. He did it without deciding to, the way he did everything now. Ron was horrified, and the horror was aimed at the wireless, and beneath it, close to the top, he was trying very hard not to look across the floor at Harry. Hermione was horrified too, more quietly. And beneath the horror, a long way down, she was frightened, and the fear was aimed at Harry, and she hadn't let herself know it yet.
 
 Evelyn was silent.
 
@@ -44987,13 +44987,13 @@ He looked at her.
 
 "Like what?"
 
-Hermione did not answer. She looked at him for some time, across the projection room floor, and then she got up and went down the stairs into the dark of the auditorium, and after a minute Ron went after her.
+Hermione didn't answer. She looked at him for some time across the projection-room floor, and then she got up and went down the stairs into the dark of the auditorium, and after a minute Ron went after her.
 
 Harry sat on the floor by the wireless.
 
-Evelyn had not moved. She was sitting on her camp bed with the stopped watch in her hand, as she sat most evenings now, and she was looking at him, and he could not read her.
+Evelyn hadn't moved. She was sitting on her camp bed with the stopped watch in her hand, as she sat most evenings now, and she was looking at him, and he couldn't read her.
 
-He did not try.
+He didn't try.
 
 He got up and went down to the screen.
 
@@ -45001,35 +45001,35 @@ He got up and went down to the screen.
 
 It went on like that for three weeks, and it worked.
 
-That was what he would remember about those weeks, afterwards, when he tried to remember anything. Not what he felt. He did not feel very much. He remembered that it all worked. Everything he did, in those weeks, worked better than anything he had ever done.
+That was what he'd remember about those weeks afterwards, when he tried to remember anything. Not what he felt. He didn't feel very much. He remembered that it all worked. Everything he did in those weeks worked better than anything he'd ever done.
 
 They went out four times in the first week alone.
 
-Theo's coin came every night now, sometimes twice, and Harry decoded it in thirty minutes instead of forty because he had stopped needing to write the squares down. There was a safe house in Bradford, a terraced house on a back street off Manningham Lane, where three Death Eaters were keeping a Muggle-born family of five in the attic until the Commission wanted them. There was a Ministry warehouse on the river at Wapping, full of confiscated wands in numbered crates. There was a farm in Norfolk, out on the flat black fields beyond Swaffham, where somebody was keeping a werewolf in a barn and selling tickets.
+Theo's coin came every night now, sometimes twice, and Harry decoded it in thirty minutes instead of forty because he no longer needed to write the squares down. There was a safe house in Bradford, a terraced house on a back street off Manningham Lane, where three Death Eaters were keeping a Muggle-born family of five in the attic until the Commission wanted them. There was a Ministry warehouse on the river at Wapping, full of confiscated wands in numbered crates. There was a farm in Norfolk, out on the flat black fields beyond Swaffham, where somebody was keeping a werewolf in a barn and selling tickets.
 
-Harry went in first, every time, in a different face.
+Harry went in first every time, in a different face.
 
-He did not plan the faces any more. He did not need to. He walked up to the door in Bradford as a tired postman with a parcel, and the Death Eater who opened it saw a tired postman with a parcel, and Harry walked past him and up the stairs while the man was still signing for it. He walked into the warehouse at Wapping as a night watchman with a torch, and the real night watchman, a bored Ministry wizard with a flask of tea, looked up and saw his own face coming towards him across the concrete, and sat with his mouth open while Harry took the keys off his belt. He walked across the farmyard in Norfolk at two in the morning as the farmer's own dog.
+He didn't plan the faces any more. He didn't need to. He walked up to the door in Bradford as a tired postman with a parcel, and the Death Eater who opened it saw a tired postman with a parcel, and Harry walked past him and up the stairs whilst the man was still signing for it. He walked into the warehouse at Wapping as a night watchman with a torch, and the real night watchman, a bored Ministry wizard with a flask of tea, looked up and saw his own face coming towards him across the concrete, and sat with his mouth open whilst Harry took the keys off his belt. He crossed the farmyard in Norfolk at two in the morning as the farmer's own dog.
 
 It worked.
 
-All of it worked. The family of five in Bradford came down out of the attic, and the youngest of them, a girl of six called Shazia, asked Ron whether he was a policeman, and Ron said yes. The wands at Wapping went out in Hermione's bag, all three hundred and forty of them, and over the next week went back, by owl and coin and Bill Weasley's old boots, to the people they belonged to. The werewolf in Norfolk turned out to be a thin frightened man of forty called Dennis who had been bitten in 1971 and had a wife in Fakenham, and he wept in the back of the farmer's own van all the way to the A47.
+All of it worked. The family of five in Bradford came down out of the attic, and the youngest, a girl of six called Shazia, asked Ron whether he was a policeman, and Ron said yes. The wands at Wapping went out in Hermione's bag, all three hundred and forty of them, and over the following week went back, by owl and coin and Bill Weasley's old boots, to the people they belonged to. The werewolf in Norfolk turned out to be a thin frightened man of forty called Dennis, who'd been bitten in 1971 and had a wife in Fakenham, and he wept in the back of the farmer's own van all the way to the A47.
 
-Theo's next message said only: *THEY ARE CALLING YOU THE OTHER ONE.*
+Theo's next message said only *THEY ARE CALLING YOU THE OTHER ONE.*
 
-Harry did not know whether *they* meant the Death Eaters or the resistance. He found that it did not matter.
+Harry didn't know whether *they* meant the Death Eaters or the resistance. He found it didn't matter.
 
 * * *
 
 He forgot to take the face off on the ninth of March.
 
-He came in through the fire door at a quarter past six in the morning after a raid on a house in Altrincham, alone, because he had gone alone, and went up the stairs to the projection room and sat down at the folding table and poured himself a cup of tea from the pot Evelyn had made at six, and Ron, coming out of his sleeping bag on the other side of the table, looked at him and went for his wand.
+He came in through the fire door at a quarter past six in the morning after a raid on a house in Altrincham, alone, because he'd gone alone, and went up the stairs to the projection room and sat at the folding table and poured himself a cup from the pot Evelyn had made at six. Ron, climbing out of his sleeping bag on the other side of the table, looked at him and went for his wand.
 
 "Who the *hell*…"
 
 Harry looked up.
 
-Ron had his wand out. It was pointing at Harry's face across the table, and Ron's face was white, and his hand was quite steady, which Harry noticed, with something that was nearly approval, because it would not have been, a year ago.
+Ron had his wand out. It was pointing at Harry's face across the table, and Ron's face was white, and his hand was quite steady, which Harry noticed with something close to approval, because a year ago it wouldn't have been.
 
 "It's me," said Harry.
 
@@ -45039,21 +45039,21 @@ Ron had his wand out. It was pointing at Harry's face across the table, and Ron'
 
 Ron stared at him for a long moment.
 
-Then he lowered the wand, slowly.
+Then he slowly lowered the wand.
 
 "Take it off," he said.
 
 "Take what…"
 
-"The *face*, Harry. Take it off. You've got some bloke's face on. Ginger moustache. Glasses. About fifty." Ron's voice was not quite steady, though his hand had been. "You're sitting at our table drinking our tea in some bloke's face and you don't even know."
+"The *face*, Harry. Take it off. You've got some bloke's face on. Ginger moustache. Glasses. About fifty." Ron's voice wasn't quite steady, though his hand had been. "You're sitting at our table drinking our tea in some bloke's face and you don't even know."
 
 Harry put his hand up to his face.
 
-It felt like his face. It always did. It was only ever on other people's eyes. He reached for the illusion, and found it, a thin steady thing he had been holding on Ron and Hermione and the stairs and the auditorium and the whole of the building without noticing, since Altrincham, since four in the morning, for two hours and a quarter, the way you go on holding a cup after you have finished drinking.
+It felt like his face. It always did. It was only ever in other people's eyes. He reached for the illusion and found it, a thin steady thing he'd been holding on Ron and Hermione and the stairs and the auditorium and the whole building without noticing, since Altrincham, since four in the morning, for two and a quarter hours, the way you go on holding a cup after you've finished drinking.
 
 He let it go.
 
-Ron looked at him. He looked for a long time. Then he sat down on the other side of the folding table, heavily, and put his wand on it, and put his hands flat beside it.
+Ron looked at him for a long time. Then he sat down heavily on the other side of the folding table, put his wand on it, and laid his hands flat beside it.
 
 "Who was he?" said Ron.
 
@@ -45065,11 +45065,11 @@ Harry thought about it.
 
 "I don't know," he said. "Somebody in Altrincham. He was on a bus."
 
-Ron did not say anything else.
+Ron let it drop.
 
-Harry read him. Ron was frightened. It was not loud. It was very quiet and very steady and it was aimed straight across the folding table at Harry, and under it, quite close to the top, Ron was grieving, and the grief was aimed at Harry too.
+Harry read him. Ron was frightened. It wasn't loud. It was very quiet and very steady and aimed straight across the folding table at Harry, and beneath it, quite close to the top, Ron was grieving, and the grief was aimed at Harry too.
 
-Harry did not know what it was for.
+Harry didn't know what it was for.
 
 He drank his tea.
 
@@ -45077,7 +45077,7 @@ He drank his tea.
 
 Ron wanted to go home on the twelfth.
 
-He said so at supper. They were eating sausages, because Harry still cooked, when he was there, and he was there. The coin had gone warm at six with a message from Ginny, who had left Hogwarts at Christmas and was at Muriel's: *DAD HURT. NOT BAD. RAID AT MURIEL'S. ALL MOVED. DON'T COME.*
+He said so at supper. They were eating sausages, because Harry still cooked when he was there, and he was there. The coin had gone warm at six with a message from Ginny, who'd left Hogwarts at Christmas and was at Muriel's. *DAD HURT. NOT BAD. RAID AT MURIEL'S. ALL MOVED. DON'T COME.*
 
 Ron read it twice. Then he put down his fork.
 
@@ -45093,27 +45093,27 @@ Ron read it twice. Then he put down his fork.
 
 "Ron, if they're being watched…"
 
-"Then I'll be careful." Ron was on his feet. His face was red. "I've been careful for seven months. I've been careful in a *cinema*. My dad's hurt and I'm sitting in a cinema in *Leeds* eating *sausages*."
+"Then I'll be careful." Ron was on his feet, his face red. "I've been careful for seven months. I've been careful in a *cinema*. My dad's hurt and I'm sitting in a cinema in *Leeds* eating *sausages*."
 
 Harry read him.
 
-He was very loud. It was all of him: fear, for his father, and his mother, and Ginny and the twins and all of them, scattered, raided, moved, nowhere. Homesickness, so large and so old now that it had stopped being a feeling and become a place he lived. And anger, hot and simple and Weasley, aimed at the cinema and the sausages and the war and at himself for being here.
+He was very loud. All of him. Fear, for his father and his mother and Ginny and the twins and all of them, scattered, raided, moved, nowhere. Homesickness, so large and so old now that it had stopped being a feeling and become a place he lived. And anger, hot and simple and Weasley, aimed at the cinema and the sausages and the war and at himself for being here.
 
-And Ron was right. Harry could see that, quite clearly. Ron was right that his family needed him and right that he wanted to go.
+And Ron was right. Harry could see that quite clearly. Ron was right that his family needed him and right that he wanted to go.
 
 But they needed him here more. They had a raid planned for the fourteenth. A Commission holding centre in Sheffield. Twenty people. Ron was the only one of them who could fly the brooms in the dark without a light.
 
-Harry did not ask.
+Harry didn't ask.
 
-He did not decide to. He did not think it through. He reached across the folding table into Ron, the way he had reached into twelve people on a bench in Courtroom Ten, and found the anger and the fear and the homesickness, all of it, very loud, and he turned it down.
+He didn't decide to. He didn't think it through. He reached across the folding table into Ron, the way he'd reached into twelve people on a bench in Courtroom Ten, and found the anger and the fear and the homesickness, all of it, very loud, and he turned it down.
 
 Not off. Down. The way you turn down a wireless.
 
-He took the anger and made it smaller. He took the fear and made it quieter. He went down through Ron to the place where Ron kept the plain stubborn Weasley calm that had stood on a chessboard at eleven and let itself be taken so a friend could go on, and he found that, and he made it larger.
+He took the anger and made it smaller. He took the fear and made it quieter. He went down through Ron to the place where Ron kept the plain stubborn Weasley calm that had stood on a chessboard at eleven and let itself be taken so a friend could go on, and he found it, and made it larger.
 
 It took about two seconds.
 
-Ron stood by the folding table with his face red. Then the red went out of it. Not all at once. Slowly, the way colour goes out of a sky. He looked down at his plate.
+Ron stood by the folding table with his face red. Then the red drained out of it. Not all at once. Slowly, the way colour goes out of a sky. He looked down at his plate.
 
 "I…" said Ron.
 
@@ -45135,33 +45135,33 @@ He ate a sausage.
 
 Hermione was looking at Harry.
 
-She did not say anything. She was looking at him across the folding table, quite steadily, with her fork in her hand and her food going cold, and Harry read her, and found that she had seen it. She did not know what she had seen. She had seen Ron stand up red and furious and sit down calm in two seconds, and she had been at a chair in Courtroom Ten with the chains in her hand when twelve people stood up all at once as though somebody had pulled a string.
+She said nothing. She was looking at him across the folding table, quite steadily, her fork in her hand and her food going cold, and Harry read her and found that she'd seen it. She didn't know what she'd seen. She'd seen Ron stand up red and furious and sit down calm in two seconds, and she'd been at a chair in Courtroom Ten with the chains in her hand when twelve people stood up all at once as though somebody had pulled a string.
 
-She did not say anything.
+She said nothing.
 
-Neither did Harry.
+Nor did Harry.
 
 * * *
 
 He did it to Hermione on the fourteenth.
 
-He did it on the roof of a disused cutlery works in Sheffield at one o'clock in the morning, with the Commission's holding centre across the road in what had once been a Methodist chapel, and twenty people in its basement, and four Death Eaters at its doors. Hermione was frightened. She was always frightened before a raid now, since the Manor. It was a cold, tight, private fear, and it was aimed at a drawing room with a chandelier in it, and a woman's voice saying one word softly, and it made her hands shake.
+He did it on the roof of a disused cutlery works in Sheffield at one in the morning, with the Commission's holding centre across the road in what had once been a Methodist chapel, twenty people in its basement and four Death Eaters at its doors. Hermione was frightened. She was always frightened before a raid now, since the Manor. It was a cold, tight, private fear, aimed at a drawing room with a chandelier in it and a woman's voice saying one word softly, and it made her hands shake.
 
 She needed her hands not to shake. She was doing the wards.
 
 So Harry made her unafraid.
 
-It was easier than Ron. Her fear was quieter, and he went in under it, and took it, and put it somewhere she would not find it until the morning, and in its place he put something cool and steady and sure that he found further down in her, a girl of eleven on a train, very certain she knew every spell in the first-year book.
+It was easier than Ron. Her fear was quieter, and he went in under it, and took it, and put it somewhere she wouldn't find it until morning, and in its place he put something cool and steady and sure that he found further down in her, a girl of eleven on a train, very certain she knew every spell in the first-year book.
 
 Her hands stopped shaking.
 
 She did the wards in eleven seconds. Twenty people came up out of the basement of a Methodist chapel in Sheffield, and none of the four Death Eaters at its doors ever knew how.
 
-Hermione did not notice. Not that night.
+Hermione didn't notice. Not that night.
 
 She noticed on the sixteenth.
 
-She came down to the screen at eleven at night, in Ron's jumper with the sleeves over her hands, and sat in the front row, where Evelyn sometimes sat, and watched him make a street in Lisbon for twenty minutes before she said anything.
+She came down to the screen at eleven at night in Ron's jumper with the sleeves over her hands and sat in the front row, where Evelyn sometimes sat, and watched him make a street in Lisbon for twenty minutes before she spoke.
 
 "Harry."
 
@@ -45175,11 +45175,11 @@ She came down to the screen at eleven at night, in Ron's jumper with the sleeves
 
 Harry held the street.
 
-He held it quite easily. A tram went down the hill. A woman leaned out of a window on the third floor and took in a sheet.
+He held it quite easily. A tram went down the hill. A woman leaned out of a third-floor window and took in a sheet.
 
 "Yes," he said.
 
-Hermione did not move.
+Hermione didn't move.
 
 "What?"
 
@@ -45189,7 +45189,7 @@ Hermione did not move.
 
 "You were very sure of yourself."
 
-There was a long silence. The woman on the third floor folded the sheet over her arm and went in.
+A long silence. The woman on the third floor folded the sheet over her arm and went in.
 
 "You didn't ask," said Hermione.
 
@@ -45197,9 +45197,9 @@ There was a long silence. The woman on the third floor folded the sheet over her
 
 "Why not?"
 
-Harry thought about it. He thought about it honestly, because she had asked honestly, and because he did not have anything to hide from her that he could find.
+Harry thought about it. He thought about it honestly, because she'd asked honestly, and because he didn't have anything to hide from her that he could find.
 
-"Because you'd have said no," he said. "And then your hands would have shaken. And the wards would have taken a minute instead of eleven seconds. And one of the four on the door might have looked up." He let the street go, all at once, and the screen went grey. "Twenty people came out of that basement, Hermione."
+"Because you'd have said no," he said. "And then your hands would have shaken. And the wards would have taken a minute instead of eleven seconds. And one of the four on the door might have looked up." He let the street go all at once, and the screen went grey. "Twenty people came out of that basement, Hermione."
 
 "I know they did."
 
@@ -45207,33 +45207,33 @@ Harry thought about it. He thought about it honestly, because she had asked hone
 
 Hermione turned round in her seat and looked at him.
 
-She looked at him a long while, in the dark, from the front row, with her hands inside the sleeves of Ron's jumper. Harry read her. She was not angry. He had thought she might be. She was something much quieter than angry, and much sadder, and he did not have the patience to go down and find out what.
+She looked at him a long while in the dark from the front row, with her hands inside the sleeves of Ron's jumper. Harry read her. She wasn't angry. He'd thought she might be. She was something much quieter than angry, and much sadder, and he didn't have the patience to go down and find out what.
 
 "No," said Hermione at last. "I can see that you don't."
 
 She got up and went back up the aisle.
 
-At the top she stopped, by the doors to the foyer, with her hand on the brass plate.
+At the top she stopped by the doors to the foyer, her hand on the brass plate.
 
 "Ron?" she said. "On the twelfth? When he wanted to go?"
 
-Harry did not answer.
+Harry didn't answer.
 
-He did not need to. She stood at the top of the aisle with her hand on the door for a moment longer, and then she went through it, and he heard her go up the stairs, quite slowly, one at a time, and he went back to the screen and made Lisbon again, from the beginning, with the trams.
+He didn't need to. She stood at the top of the aisle with her hand on the door a moment longer, then went through it, and he heard her climb the stairs quite slowly, one at a time. He went back to the screen and made Lisbon again from the beginning, with the trams.
 
 * * *
 
 He heard them on the night of the seventeenth.
 
-He was at the screen. It was half past two. They thought he was at the screen and could not hear them, and that was true, in the ordinary way. They were in the foyer, at the far end of the building, by the old ticket booth with its brass grille, sitting on the stairs to the circle where Evelyn sometimes sat, and they were talking quietly, and between them and Harry there were two sets of double doors and a great deal of dark.
+He was at the screen. It was half past two. They thought he was at the screen and couldn't hear them, and in the ordinary way that was true. They were in the foyer at the far end of the building, by the old ticket booth with its brass grille, sitting on the stairs to the circle where Evelyn sometimes sat, talking quietly, and between them and Harry were two sets of double doors and a great deal of dark.
 
-He did not need to hear them.
+He didn't need to hear them.
 
-He read them, and he could read, now, more than he used to. Not words. Not quite. But at peaks, when people felt something very strongly, a word would come with the feeling sometimes, the way a stone comes up with a net. It had been like that since his second year. It was more like that now than it had ever been.
+He read them, and he could read more now than he used to. Not words. Not quite. But at peaks, when people felt something very strongly, a word would sometimes come up with the feeling, the way a stone comes up in a net. It had been like that since his second year. It was more like that now than it had ever been.
 
 They were frightened.
 
-Both of them. It was quite loud. And it was aimed down the length of the building, through the doors and the dark, at the screen, at him.
+Both of them. Quite loud. And it was aimed down the length of the building, through the doors and the dark, at the screen, at him.
 
 *…on Thursday. Before Sheffield. I wasn't frightened. Ron, I wasn't frightened at all. I'm always frightened, since… and I wasn't, and I didn't know why, and then I…*
 
@@ -45255,11 +45255,11 @@ Both of them. It was quite loud. And it was aimed down the length of the buildin
 
 *…yeah. Me too.*
 
-Harry stood below the screen and read them, through two sets of doors and the whole length of a dead cinema, two people he had sat at a wedding with, two people who had stood on either side of another Harry in another world without looking at each other first, and he read that they were frightened of him and that they were right to be, and that they were grieving for something, and that the something was him.
+Harry stood below the screen and read them, through two sets of doors and the whole length of a dead cinema. Two people he'd sat with at a wedding. Two people who'd stood either side of another Harry in another world without looking at each other first. He read that they were frightened of him and right to be, and that they were grieving for something, and that the something was him.
 
-He did not mind.
+He didn't mind.
 
-He looked for minding, carefully, and it was not there. They were frightened, and they were right, and it did not matter, because he was keeping them alive, and they were still here, and Sheffield had worked.
+He looked for minding, carefully, and it wasn't there. They were frightened, and they were right, and it didn't matter, because he was keeping them alive, and they were still here, and Sheffield had worked.
 
 He went back to the screen.
 
@@ -45267,55 +45267,55 @@ He made rain. He was very good at rain now.
 
 * * *
 
-Evelyn did not talk to him, and he did not talk to Evelyn.
+Evelyn didn't talk to him, and he didn't talk to Evelyn.
 
-He did not decide it. He would have said, if anybody had asked, that nothing had changed. He went out on raids, and she came on some of them, and stood beside him at doors and told him when a face was slipping, which it never was now. He cooked sausages, and she ate them. She made tea at six and he drank it. They passed each other on the projection-room stairs a dozen times a day.
+He didn't decide it. He'd have said, if anyone had asked, that nothing had changed. He went out on raids, and she came on some of them and stood beside him at doors and told him when a face was slipping, which it never was now. He cooked sausages, and she ate them. She made tea at six and he drank it. They passed each other on the projection-room stairs a dozen times a day.
 
-He did not look at her.
+He didn't look at her.
 
-He could not read her. He never had been able to. For six years that had been the thing that drew him, the one silence in a world full of noise, the place he went to rest. He did not want to rest. He did not want silence. He had stopped looking at anything he could not read, the way you stop looking at the sun, and he had not noticed he had stopped.
+He couldn't read her. He never had been able to. For six years that had been what drew him, the one silence in a world full of noise, the place he went to rest. He didn't want to rest. He didn't want silence. He'd stopped looking at anything he couldn't read, the way you stop looking at the sun, and he hadn't noticed he'd stopped.
 
-And when he did look at her, which was not often, he did not like what he saw.
+And when he did look at her, which wasn't often, he didn't like what he saw.
 
-It was not anything in her face. There was never anything in her face. It was the way she looked back. She looked at him, across the projection room or the folding table or the dark of the auditorium, the way she had looked at him at the foot of the post office steps. As though she could see something he could not.
+It wasn't anything in her face. There was never anything in her face. It was the way she looked back. She looked at him, across the projection room or the folding table or the dark of the auditorium, the way she'd looked at him at the foot of the post office steps. As though she could see something he couldn't.
 
 She could.
 
-She was the only person in the world his illusions had never touched. She saw him as he was, every time, whatever face he had on, whatever he was holding on whom. She had seen the polite young man in Altrincham's face at the folding table, and through it, Harry. She had seen fourteen men in the snow, and no flowers.
+She was the only person in the world his illusions had never touched. She saw him as he was, every time, whatever face he had on, whatever he was holding on whom. She'd seen the polite stranger's face from Altrincham at the folding table, and Harry through it. She'd seen fourteen men in the snow, and no flowers.
 
-He did not want to know what she saw.
+He didn't want to know what she saw.
 
-So he did not look.
+So he didn't look.
 
 * * *
 
 Evelyn had counted.
 
-She sat on the end of her camp bed in the projection room at eleven o'clock on the night of the eighteenth of March, with the red notebook open on her knee and the stopped watch in her other hand, and counted again, to be sure.
+She sat on the end of her camp bed in the projection room at eleven o'clock on the night of the eighteenth of March, the red notebook open on her knee and the stopped watch in her other hand, and counted again, to be sure.
 
 Nineteen days.
 
-He had said her name on the twenty-sixth of February, at four o'clock in the afternoon, on the camp bed opposite. *Selwyn.* He had not said it since. He had said *we're going in at two* and *Bradford* and *they're on the second floor* and *thank you* for the tea. He had not said *Selwyn*, or *Evelyn*, or anything at all that was meant for her and not for whoever else was in the room.
+He'd said her name on the twenty-sixth of February, at four in the afternoon, on the camp bed opposite. *Selwyn.* He hadn't said it since. He'd said *we're going in at two* and *Bradford* and *they're on the second floor* and *thank you* for the tea. He hadn't said *Selwyn*, or *Evelyn*, or anything at all that was meant for her and not for whoever else was in the room.
 
 Nineteen days.
 
-She had tried everything she knew.
+She'd tried everything she knew.
 
-She had made a list of it. It was on the previous page. She had written it out on the second of March and added to it every night since, and crossed things out as she tried them, one line through each, neatly, so that she could still read what it had been.
+She'd made a list. It was on the previous page. She'd written it out on the second of March and added to it every night since, crossing things out as she tried them, one line through each, neatly, so she could still read what it had been.
 
-*Talk to him.* She had tried, on the first, on the fourth, on the seventh. He had answered every question she asked, quite politely, and had not been there.
+*Talk to him.* She'd tried, on the first, the fourth, the seventh. He'd answered every question she asked, quite politely, and hadn't been there.
 
-*Leave him alone.* She had tried. For four days. He had not noticed.
+*Leave him alone.* She'd tried. For four days. He hadn't noticed.
 
-*Make him angry.* She had told him, on the ninth, at the folding table, that the illusion on the farmer's dog in Norfolk had had the wrong number of legs for a full second as it crossed the yard, which was true. He had said *thank you, I'll watch that*, and had not been angry at all.
+*Make him angry.* She'd told him on the ninth, at the folding table, that the illusion of the farmer's dog in Norfolk had had the wrong number of legs for a full second as it crossed the yard, which was true. He'd said *thank you, I'll watch that*, and hadn't been angry at all.
 
-*Go with him.* She had gone on every raid he would let her go on. She had stood at doors.
+*Go with him.* She'd gone on every raid he'd let her go on. She'd stood at doors.
 
-*Follow him.* She had begun, on the eleventh, to follow him when he went out alone. He had not known. She had stood in a bus shelter in Altrincham in the rain at four in the morning and watched a man with a ginger moustache come out of a house and walk away down the road, and known it was Potter by the way he held his shoulders, and known that he did not know she was there.
+*Follow him.* On the eleventh she'd begun following him when he went out alone. He hadn't known. She'd stood in a bus shelter in Altrincham in the rain at four in the morning and watched a man with a ginger moustache come out of a house and walk away down the road, and known it was Potter by the way he held his shoulders, and known he didn't know she was there.
 
-*Tell Weasley and Granger.* She had not needed to. They knew. She had heard them on the stairs.
+*Tell Weasley and Granger.* She hadn't needed to. They knew. She'd heard them on the stairs.
 
-*Write to somebody.* There was nobody to write to. Her grandfather was dead. Dumbledore was dead. Sirius was dead. Professor McGonagall was at Hogwarts with the Carrows and could not be reached. She had sat with the pen over a clean page for a long time on the fourteenth and not been able to think of one single person alive who could do anything.
+*Write to somebody.* There was nobody to write to. Her grandfather was dead. Dumbledore was dead. Sirius was dead. Professor McGonagall was at Hogwarts with the Carrows and couldn't be reached. She'd sat with the pen over a clean page for a long time on the fourteenth and couldn't think of one single person alive who could do anything.
 
 All crossed out.
 
@@ -45323,55 +45323,55 @@ She turned the page.
 
 There was one thing left.
 
-She had known it was there for some time. She had known it since a staircase at Hogsmeade, since a gap in the morning shaped like somebody, since the moment he had looked at her from the post office step and smiled the smile he used on Madam Pince. She had known it, and not written it down, because writing it down would make it a thing that could be done.
+She'd known it was there for some time. She'd known it since a staircase at Hogsmeade, since a gap in the morning shaped like somebody, since the moment he'd looked at her from the post office step and smiled the smile he used on Madam Pince. She'd known it, and hadn't written it down, because writing it down would make it something that could be done.
 
 She wrote it down.
 
-It was one line. It was only a few words. She wrote it in her small square hand at the top of a clean page, under the date, and looked at it.
+It was one line. Only a few words. She wrote it in her small square hand at the top of a clean page, under the date, and looked at it.
 
 She looked at it for some minutes.
 
-It was the most frightening thing she had ever written. She had written *Justin Finch-Fletchley* and a time. She had written *My grandfather is dead*. She had written, once, at twenty-one minutes past two in the morning in the library in her seventh year, *I am frightened for Potter*, and underlined it. This was worse than any of them. She did not know what would happen if she did it. Nobody did. Nobody had ever done it. She had been told, every morning from the age of five, by a woman she had loved more than anyone, that she must never, ever, under any circumstances, do it.
+It was the most frightening thing she'd ever written. She'd written *Justin Finch-Fletchley* and a time. She'd written *My grandfather is dead*. She'd written once, at twenty-one minutes past two in the morning in the library in her seventh year, *I am frightened for Potter*, and underlined it. This was worse than any of them. She didn't know what would happen if she did it. Nobody did. Nobody had ever done it. She'd been told every morning from the age of five, by a woman she'd loved more than anyone, that she must never, ever, under any circumstances, do it.
 
 She drew a line through it.
 
-It was not a neat line. It went through the words and out the other side and across the page, and the nib caught on the paper and tore it, a little, at the end.
+It wasn't a neat line. It went through the words and out the other side and across the page, and the nib caught on the paper and tore it a little at the end.
 
-She closed the notebook and put it under her pillow, with the watch.
+She closed the notebook and put it under her pillow with the watch.
 
-She lay down on the camp bed with her face to the wall, and did not sleep, and listened for him to come up the stairs.
+She lay down on the camp bed with her face to the wall, and didn't sleep, and listened for him to come up the stairs.
 
 He came up at ten past four. She heard him lie down. She heard his breathing slow.
 
-She did not take the notebook out again.
+She didn't take the notebook out again.
 
-She did not need to. She could see the line in the dark, with her eyes shut. She could see it quite clearly, and the words under it, and the small tear at the end of the line where her hand had pressed too hard.
+She didn't need to. She could see the line in the dark with her eyes shut. She could see it quite clearly, and the words beneath it, and the small tear at the end where her hand had pressed too hard.
 
-She noted that she had not made it illegible.
+She noted that she hadn't made it illegible.
 
 * * *
 
-Severus Snape read the reports at the headmaster's desk at a quarter to one in the morning, by the light of a single candle, as he read everything now.
+Severus Snape read the reports at the headmaster's desk at a quarter to one in the morning by the light of a single candle, as he read everything now.
 
-The office was very quiet. The silver instruments on the spindle-legged tables had stopped whirring at midnight, as they always did, though nobody had ever told him why. The Sorting Hat was asleep on its shelf. Fawkes's perch was empty. On the walls, the portraits of the headmasters and headmistresses of Hogwarts slept or pretended to, in their frames, with their chins on their chests, and Phineas Nigellus snored, and Dilys Derwent muttered.
+The office was very quiet. The silver instruments on the spindle-legged tables had stopped whirring at midnight, as they always did, though nobody had ever told him why. The Sorting Hat was asleep on its shelf. Fawkes's perch was empty. On the walls the portraits of the headmasters and headmistresses of Hogwarts slept or pretended to, chins on their chests, and Phineas Nigellus snored, and Dilys Derwent muttered.
 
 Behind the desk, in a plain dark wooden frame, Albus Dumbledore slept with his hands folded and his half-moon spectacles on the end of his nose.
 
-He had been asleep for eight months.
+He'd been asleep for eight months.
 
-Snape did not look at him. He did not need to. He knew exactly where the frame was. He knew it the way you know where a window is in a room you have lived in for a long time, by the draught.
+Snape didn't look at him. He didn't need to. He knew exactly where the frame was. He knew it the way you know where the window is in a room you've lived in a long time, by the draught.
 
 He read the reports.
 
-There were seven of them. They had come in the usual ways, which were not ways that anybody else in the building knew about. A letter from Yaxley, who now ran the Commission's investigators and wrote like a man filling in a form. A note from Rowle's widow, very short, asking whether the school could tell her anything about how her husband had died, because nobody at the Ministry would. A copy of a report from two Healers at St Mungo's, who had gone to Hogsmeade in secret on a Friday night and written down, very carefully, in the plain language of people who are trying not to scream, what they had found standing in the snow.
+There were seven of them. They'd come in the usual ways, which weren't ways anybody else in the building knew about. A letter from Yaxley, who now ran the Commission's investigators and wrote like a man filling in a form. A note from Rowle's widow, very short, asking whether the school could tell her anything about how her husband had died, because nobody at the Ministry would. A copy of a report from two Healers at St Mungo's who'd gone to Hogsmeade in secret on a Friday night and written down very carefully, in the plain language of people trying not to scream, what they'd found standing in the snow.
 
 *No external enchantment detected. No curse. No residue. No counter possible. In our opinion each subject is experiencing a single traumatic memory as present reality, repeatedly, without remission. The memory appears to have been located within the subject and released. The mechanism by which it repeats is unknown to us. Any attempt at physical contact results in extreme distress. We were unable to assist. We recommend that nobody else be sent.*
 
-They had died on the Saturday, of cold. All fourteen. Sitting in the snow.
+They'd died on the Saturday, of cold. All fourteen. Sitting in the snow.
 
-There was a report from the Ministry, about a Death Eater called Selby who had been taken in a raid on a house in Bradford on the second of March and found three days later, on the fourth, sitting in a public lavatory in Leeds railway station with his back against the wall. He had told the Aurors who found him everything. Every name. Every safe house. Every meeting. He had told them in a calm, clear, helpful voice, for nine hours, without stopping, and when they had finished asking, he had turned round and begun to tell it all again, to the wall.
+There was a report from the Ministry about a Death Eater called Selby, who'd been taken in a raid on a house in Bradford on the second of March and found two days later, on the fourth, sitting in a public lavatory at Leeds railway station with his back against the wall. He'd told the Aurors who found him everything. Every name. Every safe house. Every meeting. He'd told them in a calm, clear, helpful voice, for nine hours without stopping, and when they'd finished asking, he'd turned round and begun telling it all again, to the wall.
 
-He was in St Mungo's now. He talked to the wall of his room. He was quite happy. He did not know that anybody else was there.
+He was in St Mungo's now. He talked to the wall of his room. He was quite happy. He didn't know anyone else was there.
 
 Snape put the reports down.
 
@@ -45379,25 +45379,25 @@ He sat at the desk with his hands flat on the papers and looked at the candle.
 
 He thought about a boy of eleven in the Great Hall, under the Sorting Hat, with his mother's eyes.
 
-He thought about a boy of fourteen in his office, in a lesson that had been meant to teach him to close his mind, who had not closed it, who had gone the other way, who had come into Snape's own head without being asked, as nobody ever had, and read what was in there. Read it. Not seen it. *Felt* it. A playground. A girl on a swing. Felt what Snape had felt, from inside, as though it were his.
+He thought about a boy of fourteen in his office, in a lesson meant to teach him to close his mind, who hadn't closed it, who'd gone the other way, who'd come into Snape's own head uninvited, as nobody ever had, and read what was there. Read it. Not seen it. *Felt* it. A playground. A girl on a swing. Felt what Snape had felt, from the inside, as though it were his.
 
 Snape had thrown him out of the room and never forgiven him.
 
-He thought about a courtyard, last June, at the foot of the tower. About standing in it alone, thinking himself unseen, and looking up at the parapet, and not being able to close. About turning round and finding the boy on the low wall by the greenhouse gate, looking at him. Reading him. And about the boy's face, after. It had changed. It had trusted him. It had trusted him completely, from that moment, without a word, and had gone on trusting him, and the doe had gone to the cinema in Leeds four times since October, and every time the boy had said *thank you* to it, quietly, in the dark. Snape knew. The doe told him.
+He thought about a courtyard last June at the foot of the tower. About standing in it alone, thinking himself unseen, looking up at the parapet and unable to close. About turning round and finding the boy on the low wall by the greenhouse gate, looking at him. Reading him. And about the boy's face afterwards. It had changed. It had trusted him. It had trusted him completely from that moment, without a word, and gone on trusting him, and the doe had gone to the cinema in Leeds four times since October, and every time the boy had said *thank you* to it, quietly, in the dark. Snape knew. The doe told him.
 
 He thought about the Astronomy Tower in April of last year.
 
-It had been a moonless night. Albus had asked him to come up, and he had come, and Albus had shut the door at the top of the stairs and stood at the parapet in the dark and said nothing for a while. Then he had said it.
+It had been a moonless night. Albus had asked him to come up, and he'd come, and Albus had shut the door at the top of the stairs and stood at the parapet in the dark, silent for a while. Then he'd said it.
 
 Snape had refused.
 
-He had refused for an hour. He had never, in sixteen years, refused Albus Dumbledore anything that mattered, and he had refused this, on a tower, in the dark, for an hour, over and over, until Albus had turned round from the parapet and looked at him, and Snape had seen in his face that he was afraid. Not of dying. He had already decided how he would die. Of something else.
+He'd refused for an hour. He'd never once in sixteen years refused Albus Dumbledore anything that mattered, and he'd refused this, on a tower, in the dark, for an hour, over and over, until Albus turned from the parapet and looked at him, and Snape saw in his face that he was afraid. Not of dying. He'd already decided how he'd die. Of something else.
 
 *If he becomes what Tom became*, Albus had said, *you will have to stop him. I could not stop Gellert in time. Do not make my mistake.*
 
 Snape had said yes.
 
-He had said it because Albus was afraid, and because he had never seen Albus afraid of anything, and because he had not believed, then, that it would ever come to anything. A boy of sixteen. A boy who felt sick looking at a memory of Tom Riddle at eleven. A boy who had cried, Albus said, in his office, at fourteen, over a Hufflepuff he had barely known.
+He'd said it because Albus was afraid, and he'd never seen Albus afraid of anything, and because he hadn't believed, then, that it would ever come to anything. A boy of sixteen. A boy who felt sick looking at a memory of Tom Riddle at eleven. A boy who'd cried in Albus's office at fourteen, Albus said, over a Hufflepuff he'd barely known.
 
 Snape looked at the reports.
 
@@ -45405,25 +45405,25 @@ Fourteen men in the snow, until they died of cold. A man who talked to a wall.
 
 *The memory appears to have been located within the subject and released.*
 
-He thought about the Dark Lord at sixteen, in the headmaster's office in Dippet's time, being charming. He had heard the stories. Everybody in Slytherin had. He thought about the Dark Lord at sixty-nine, on a lawn, taking a wand out of a dead man's hand, very gently, the way you take a toy from a sleeping child.
+He thought about the Dark Lord at sixteen, in the headmaster's office in Dippet's time, being charming. He'd heard the stories. Everybody in Slytherin had. He thought about the Dark Lord at sixty-nine on a lawn, taking a wand out of a dead man's hand very gently, the way you'd take a toy from a sleeping child.
 
 He thought about Lily's eyes.
 
-They were in that face. They had always been in that face. He had looked at them across a classroom for six years and hated the face they were in and been unable to look away from them, and they had looked back at him from the low wall by the greenhouse gate, trusting him, and they were looking now, from a step in the snow in Hogsmeade, at fourteen men freezing to death, and they were perfectly calm.
+They were in that face. They'd always been in that face. He'd looked at them across a classroom for six years and hated the face they were in and been unable to look away, and they'd looked back at him from the low wall by the greenhouse gate, trusting him, and they were looking now, from a step in the snow in Hogsmeade, at fourteen men freezing to death, and they were perfectly calm.
 
 He looked up at the frame behind the desk.
 
-Albus was asleep, with his hands folded and his spectacles on the end of his nose. He had been asleep for eight months. Phineas said he had not woken once, and Phineas was a liar, but not about that.
+Albus was asleep, hands folded, spectacles on the end of his nose. He'd been asleep for eight months. Phineas said he hadn't woken once, and Phineas was a liar, but not about that.
 
-"You were right," said Snape, to the sleeping portrait.
+"You were right," Snape told the sleeping portrait.
 
 His voice was quite flat.
 
-The portrait did not wake. Its chest rose and fell, very slightly, under the painted midnight-blue robes. Snape watched it for a long moment. He did not know whether it was asleep, or pretending, or whether a portrait could pretend. He had never asked.
+The portrait didn't wake. Its chest rose and fell very slightly under the painted midnight-blue robes. Snape watched it for a long moment. He didn't know whether it was asleep, or pretending, or whether a portrait could pretend. He'd never asked.
 
-He did not want to know.
+He didn't want to know.
 
-He took a clean sheet of parchment from the drawer, and dipped his pen, and held it over the page.
+He took a clean sheet of parchment from the drawer, dipped his pen, and held it over the page.
 
 He sat like that for some time.
 
