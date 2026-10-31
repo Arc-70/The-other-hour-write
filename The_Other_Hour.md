@@ -43059,7 +43059,7 @@ He stood in the orchestra pit and watched the doe go out on the screen like the 
 
 ## Chapter 70: The Commission
 
-Theo's coin went warm on the first Sunday in November, at twenty past three in the morning, and it took Harry fifty-five minutes to turn it into one line.
+Theo's coin went warm on the first Sunday in November at twenty past three in the morning, and it took Harry fifty-five minutes to turn it into one line.
 
 *THURS 13. CT TEN. 9AM. TWELVE. NOT COMING BACK.*
 
@@ -43071,13 +43071,13 @@ Then he woke the others.
 
 "Twelve people," said Hermione.
 
-It was half past four. She was sitting up on her camp bed in a jumper of Ron's with the sleeves pulled down over her hands, and she had not been asleep. Harry had known that. She had not been asleep at half past four for a month.
+It was half past four. She was sitting up on her camp bed in one of Ron's jumpers with the sleeves pulled down over her hands, and she hadn't been asleep. Harry had known that. She hadn't been asleep at half past four for a month.
 
-"Twelve Muggle-borns," said Harry. "Who didn't present themselves. They've been picked up. They're being heard on Thursday, in Courtroom Ten, at nine. By the Commission."
+"Twelve Muggle-borns," said Harry. "Who didn't present themselves. They've been picked up. They're being heard on Thursday in Courtroom Ten at nine. By the Commission."
 
 "And *not coming back* means…"
 
-"It means Azkaban," said Evelyn. She was sitting on the end of her own bed with the watch in her hand. She had wound it while Harry talked. It was ten to five. "Or worse. The Commission's hearings aren't trials. There's no defence. It's an interview. They ask you where you got your wand and who your grandparents were, and if you can't prove a wizard in the family, they find that you stole it." She put the watch away. "Theo means they've already decided. The hearing's so it can be written down that there was one."
+"It means Azkaban," said Evelyn. She was sitting on the end of her own bed with the watch in her hand. She'd wound it whilst Harry talked. It was ten to five. "Or worse. The Commission's hearings aren't trials. There's no defence. It's an interview. They ask you where you got your wand and who your grandparents were, and if you can't prove a wizard in the family, they find that you stole it." She put the watch away. "Theo means they've already decided. The hearing's there so it can be written down that there was one."
 
 Ron was looking at Harry.
 
@@ -43089,13 +43089,13 @@ Ron was looking at Harry.
 
 "Yes."
 
-"The *Ministry*, Harry. Where your face is on the wall. Where they've got Dementors in the *lifts*." Ron's voice went up. "Where her *dad* is."
+"The *Ministry*, Harry. Where your face is on the wall. Where they've got Dementors in the *lifts*." Ron's voice rose. "Where her *dad* is."
 
 "Yes," said Evelyn. "I know where my father is."
 
-Nobody said anything for a moment.
+The projection room went quiet.
 
-Harry read them. Ron was terrified, and under the terror there was something hot and stubborn and Weasley that wanted to go anyway, because there were twelve people in a cell and that was not all right. Hermione was frightened in a quieter way, very steady, and under it, so close to the top that it was nearly the same thing, she was thinking about her own name in the *Prophet*, eleventh of forty-one, and about how she might very easily be the thirteenth. And Evelyn was silent.
+Harry read them. Ron was terrified, and beneath the terror there was something hot and stubborn and Weasley that wanted to go anyway, because there were twelve people in a cell and that wasn't all right. Hermione was frightened in a quieter way, very steady, and beneath it, so close to the top it was nearly the same thing, she was thinking about her own name in the *Prophet*, eleventh of forty-one, and how easily she might be the thirteenth. And Evelyn was silent.
 
 "I can get us in," said Harry. "I can get us in looking like anybody. I've been doing it on the screen for three months."
 
@@ -43107,9 +43107,9 @@ Harry read them. Ron was terrified, and under the terror there was something hot
 
 "You can't see them at all."
 
-"No," she agreed. "I see you. All four of you. As you are. Which means that if anybody else is looking at you oddly, it's because the face has gone wrong, and I'll know before you do." She put her hands in her lap. "I'll be your mirror. It's the only thing I'm good for, in there. I can't be anybody else. Your faces don't work on me, so I'll be the only person in the building who knows what you look like."
+"No," she agreed. "I see you. All four of you. As you are. Which means that if anybody else is looking at you oddly, it's because the face has gone wrong, and I'll know before you do." She put her hands in her lap. "I'll be your mirror. It's the only thing I'm good for in there. I can't be anybody else. Your faces don't work on me, so I'll be the only person in the building who knows what you look like."
 
-"Your face doesn't take, either," said Harry. "On you. You know that. You've never been able to wear one."
+"Your face doesn't take either," said Harry. "On you. You know that. You've never been able to wear one."
 
 "Then I'll go as myself."
 
@@ -43117,11 +43117,11 @@ Harry read them. Ron was terrified, and under the terror there was something hot
 
 "Yes," said Evelyn. "You said."
 
-She looked at him. Harry could not read her. He had never been able to. He looked at her plain face in the wandlight, at five in the morning in a dead cinema, and could not see anything in it at all, and knew she had decided before he woke her.
+She looked at him. Harry couldn't read her. He never had been able to. He looked at her plain face in the wandlight at five in the morning in a dead cinema and couldn't see anything in it at all, and knew she'd decided before he woke her.
 
-"I'll go as myself," she said again, "and you'll make *them* see somebody else. Not me. Them. Everyone who looks at me. You can do that. You did it at the Burrow, fifty times. It's the same thing. You'll just have to hold it on everybody in the building instead of on me."
+"I'll go as myself," she said again, "and you'll make *them* see somebody else. Not me. Them. Everyone who looks at me. You can do that. You did it at the Burrow fifty times. It's the same thing. You'll just have to hold it on everybody in the building instead of on me."
 
-Harry did not answer at once.
+Harry didn't answer at once.
 
 "That's harder," said Hermione slowly. "Isn't it? That's much harder. A face on a person is one thing. A face on every person who looks at a person…"
 
@@ -43129,7 +43129,7 @@ Harry did not answer at once.
 
 "Can you do it?"
 
-He thought about the Atrium. About two thousand people. About the screen, and a thousand people walking up and down Diagon Alley who did not have to do anything, and how easy that was, and one person crossing a room in an ordinary way, and how hard.
+He thought about the Atrium. About two thousand people. About the screen, and a thousand people walking up and down Diagon Alley who didn't have to do anything, and how easy that was, and one person crossing a room in an ordinary way, and how hard.
 
 "Yes," he said.
 
@@ -43137,15 +43137,15 @@ He thought about the Atrium. About two thousand people. About the screen, and a 
 
 They went in on Thursday at a quarter past eight, through a tailor's shop in Great Scotland Yard.
 
-The shop had been shut for twenty years. It said so, in gilt letters gone green, on the window: *Morrison & Daughter, Bespoke, Est. 1891*. Theo's next coin had told them about it. The old staff entrances had been changed in September, he said. Too many people knew them. Ministry staff now came in through the back of Morrison's, one at a time, by a fitting room with a long mirror, and you showed a brass token to the mirror and the mirror let you through.
+The shop had been shut for twenty years. The window said so in gilt letters gone green. *Morrison & Daughter, Bespoke, Est. 1891.* Theo's next coin had told them about it. The old staff entrances had been changed in September, he said. Too many people knew them. Ministry staff now came in through the back of Morrison's, one at a time, by a fitting room with a long mirror, and you showed a brass token to the mirror and the mirror let you through.
 
 They had no tokens.
 
-Harry stood in the empty shop at a quarter past eight with dust on the counter and a headless dummy in the window in a jacket from 1977, and looked at the mirror in the fitting room, and read it.
+Harry stood in the empty shop at a quarter past eight, with dust on the counter and a headless dummy in the window wearing a jacket from 1977, and looked at the mirror in the fitting room, and read it.
 
 There was nothing in it. It was glass. But there was somebody watching it from the other side, a long way down, bored, at the end of a night shift, and the somebody was a person, and Harry could find a person anywhere.
 
-He showed the person behind the mirror four brass tokens that were not there.
+He showed the person behind the mirror four brass tokens that weren't there.
 
 The mirror let them through.
 
@@ -43155,33 +43155,33 @@ The Atrium had changed.
 
 The fountain had gone. Harry had last seen it as rain, falling where a golden fountain had been, with Dumbledore sitting on its rim, very old. Somebody had cleared away the rim and put something else there.
 
-It was a statue. It was black, and very large, and it was of a witch and a wizard sitting side by side on two thrones, carved with great skill, with their faces calm and beautiful and their hands on their knees. Harry looked at the thrones. They were not thrones. They were people. Hundreds of carved naked people, men and women and children, piled on top of one another and twisted together, with their faces turned up and their mouths open, and the witch and the wizard were sitting on them.
+It was a statue, black and very large, of a witch and a wizard seated side by side on two thrones, carved with great skill, their faces calm and beautiful, their hands on their knees. Harry looked at the thrones. They weren't thrones. They were people. Hundreds of carved naked people, men and women and children, piled on top of one another and twisted together, faces turned up and mouths open, and the witch and the wizard were sitting on them.
 
 There were words cut into the base. *ORDER IS THE FIRST KINDNESS.*
 
-Harry did not look at it for long.
+Harry didn't look at it for long.
 
-He was holding four faces. He had built them on the screen for three days. Ron was a short, bald, middle-aged wizard with a moustache and a slight limp, called Reg in Harry's head, who worked in Magical Maintenance and hated his job. Hermione was a tall thin witch of about forty with grey hair in a bun and half-moon spectacles, very upright, very unhappy, a records clerk from the Commission. Harry himself was nobody. A young man in grey robes with a forgettable face, a junior clerk, the sort of person that people look at and away from.
+He was holding four faces. He'd built them on the screen over three days. Ron was a short, bald, middle-aged wizard with a moustache and a slight limp, called Reg in Harry's head, who worked in Magical Maintenance and hated his job. Hermione was a tall thin witch of about forty with grey hair in a bun and half-moon spectacles, very upright and very unhappy, a records clerk from the Commission. Harry himself was nobody. A young man in grey robes with a forgettable face, a junior clerk, the sort of person people look at and away from.
 
-And Evelyn was Evelyn, walking beside him, and to every person in the Atrium who looked at her, she was a pale young witch with straight fair hair and no chin, called Miss Hopwood, from the Commission's Records Office, carrying a file.
+And Evelyn was Evelyn, walking beside him, and to every person in the Atrium who looked at her she was a pale young witch with straight fair hair and no chin, called Miss Hopwood, from the Commission's Records Office, carrying a file.
 
 Harry held it.
 
-It was the hardest thing he had ever done. It was harder than the Horntail and harder than the graveyard, because it did not stop. Two thousand people were walking across the Atrium at twenty past eight on a Thursday morning, and every one of them who turned their eyes towards a plain girl with brown hair had to see a fair one with no chin instead, and they did not know they were doing it, and they could turn at any moment, from anywhere, and he had to be there first. He could not hold it on the girl. He had to hold it on all of them.
+It was the hardest thing he'd ever done. It was harder than the Horntail and harder than the graveyard, because it didn't stop. Two thousand people were crossing the Atrium at twenty past eight on a Thursday morning, and every one of them who turned their eyes towards a plain girl with brown hair had to see a fair one with no chin instead. They didn't know they were doing it, and they could turn at any moment, from anywhere, and he had to be there first. He couldn't hold it on the girl. He had to hold it on all of them.
 
 He read the building to do it.
 
-He had never read a building before, not on purpose. He read it now, because he had to, every person in it, so that he would know which of them were looking.
+He'd never read a building before, not on purpose. He read it now because he had to, every person in it, so he'd know which of them were looking.
 
 It was full of fear.
 
-It was the first thing he felt and the last thing he would remember. The Ministry of Magic was full of it, from the Atrium floor to the top of the lifts, like water in a tank. People were frightened walking in from the fireplaces. They were frightened queuing at the security desk. They were frightened in the lifts and in the corridors above and in the offices above those. It was not loud. Nobody in the Atrium was screaming. It was quiet and grey and everywhere, the fear of two thousand people who had all decided, at about the same time in August, to keep their heads down and do their jobs and not look at the statue.
+It was the first thing he felt and the last thing he'd remember. The Ministry of Magic was full of it, from the Atrium floor to the top of the lifts, like water in a tank. People were frightened walking in from the fireplaces. They were frightened queuing at the security desk. They were frightened in the lifts and the corridors above and the offices above those. It wasn't loud. Nobody in the Atrium was screaming. It was quiet and grey and everywhere, the fear of two thousand people who'd all decided at about the same time in August to keep their heads down and do their jobs and not look at the statue.
 
-"Left," said Evelyn, very quietly, beside him. "The man by the post desk. He's looked at Weasley twice."
+"Left," murmured Evelyn beside him. "The man by the post desk. He's looked at Weasley twice."
 
 Harry found the man by the post desk.
 
-The man was bored, and under the boredom, very small, he was puzzled, because Reg from Magical Maintenance had seemed for a moment to be taller than Reg was. Harry put Reg back to his proper height in the man's head, and made him a little shorter for good measure, and the man stopped being puzzled and went back to sorting memos.
+The man was bored, and beneath the boredom, very small, he was puzzled, because Reg from Magical Maintenance had seemed for a moment to be taller than Reg was. Harry put Reg back to his proper height in the man's head, and made him a little shorter for good measure, and the man stopped being puzzled and went back to sorting memos.
 
 "Thank you," said Harry, without moving his lips.
 
@@ -43189,102 +43189,103 @@ The man was bored, and under the boredom, very small, he was puzzled, because Re
 
 * * *
 
-There were two Dementors at the foot of the stairs to the courtrooms, on the tenth level, and the cold came up the stairs to meet them.
+There were two Dementors at the foot of the stairs to the courtrooms on the tenth level, and the cold rose up the stairs to meet them.
 
-Harry felt the appetite before he felt the cold. He had felt it in an alley in Little Whinging two years ago and on a lake shore before that, and it had not changed. Two great cold pulls at the bottom of the stairs, aimed at everything warm that came down them.
+Harry felt the appetite before he felt the cold. He'd felt it in an alley in Little Whinging two years ago and on a lake shore before that, and it hadn't changed. Two great cold pulls at the bottom of the stairs, aimed at everything warm that came down them.
 
-He could not put a face on them. They had no faces to put one on. There was nothing in them to fool. Nothing that looked, nothing that believed. There was only the wanting.
+He couldn't put a face on them. They had no faces to put one on. There was nothing in them to fool. Nothing that looked, nothing that believed. There was only the wanting.
 
 They went past them anyway.
 
-Hermione's hand was shaking. Harry could feel it through the face he was holding on her, the thin grey upright clerk, and he held the face very firmly and did not let it shake. Ron walked with his eyes on the floor. Evelyn walked as she always walked, quite straight, with the file under her arm, and looked at the two tall black hooded shapes as they passed, and Harry saw her look, and saw that she was counting something.
+Hermione's hand was shaking. Harry could feel it through the face he was holding on her, the thin grey upright clerk, and he held the face very firmly and didn't let it shake. Ron walked with his eyes on the floor. Evelyn walked as she always walked, quite straight, the file under her arm, and looked at the two tall black hooded shapes as they passed, and Harry saw her look, and saw that she was counting something.
 
-The door of Courtroom Ten was open.
+The door of Courtroom Ten stood open.
 
 * * *
 
-He had been in it before.
+He'd been in it before.
 
-He had been in it in a Pensieve, standing beside a young Dumbledore, watching a boy with straw-coloured hair scream that he was innocent. He had been in it on a hot morning in August two years ago, at fifteen, and walked out of it free. It had not changed. The same dark stone walls, the same dim torches, the same tiers of benches going up on every side into the dark. The same chair in the middle of the floor, with the chains on its arms.
+He'd been in it in a Pensieve, standing beside a young Dumbledore, watching a boy with straw-coloured hair scream that he was innocent. He'd been in it on a hot August morning two years ago, at fifteen, and walked out free. It hadn't changed. The same dark stone walls, the same dim torches, the same tiers of benches rising on every side into the dark. The same chair in the middle of the floor, with the chains on its arms.
 
 The benches were nearly empty.
 
-There were perhaps a dozen people in the lowest tier. Clerks, with quills and long rolls of parchment. Two Ministry wizards in plum robes, very bored. And on the high platform at the front, behind a long desk, three people.
+There were perhaps a dozen people in the lowest tier. Clerks with quills and long rolls of parchment. Two Ministry wizards in plum robes, very bored. And on the high platform at the front, behind a long desk, three people.
 
-On the left sat a squat woman in pink, with a black velvet bow in her hair and a cat on the brooch at her neck. She was smiling. She had a cup of tea in front of her, and a plate with two biscuits on it, and she was holding a quill as though it were something delicate.
+On the left sat a squat woman in pink, with a black velvet bow in her hair and a cat brooch at her neck. She was smiling. She had a cup of tea in front of her and a plate with two biscuits on it, and she held her quill as though it were something delicate.
 
-Harry read her, and found exactly what he had found in an office with kitten plates on the wall, two years ago. A sweet, sincere, cosy enjoyment. She was enjoying this morning. She was going to enjoy all of it.
+Harry read her, and found exactly what he'd found in an office with kitten plates on the wall two years ago. A sweet, sincere, cosy enjoyment. She was enjoying this morning. She was going to enjoy all of it.
 
-On the right sat a young wizard Harry did not know, writing.
+On the right sat a young wizard Harry didn't know, writing.
 
 In the middle, very still, sat Corvin Selwyn.
 
-Harry had not seen him since the World Cup. He had seen his photograph in the *Prophet* in August, standing on the Ministry steps. He looked exactly as he had in it. Lean, and grey, and very upright, with his long pale hands folded on the desk in front of him, quite motionless, and his face composed and polite and attentive. He did not have a cup of tea. He did not have biscuits. He had a single sheet of parchment, and he was not looking at it.
+Harry hadn't seen him since the World Cup. He'd seen his photograph in the *Prophet* in August, standing on the Ministry steps. He looked exactly as he had in it. Lean and grey and very upright, his long pale hands folded on the desk before him, quite motionless, his face composed and polite and attentive. He had no tea. He had no biscuits. He had a single sheet of parchment, and he wasn't looking at it.
 
 He was looking at the woman in the chair.
 
-She was about thirty. She had short dark hair and a Muggle cardigan buttoned up wrong, and the chains on the arms of the chair had closed round her wrists, and she was holding herself very still, the way you hold yourself when you think that if you move you will cry.
+She was about thirty. She had short dark hair and a Muggle cardigan buttoned up wrong, and the chains on the arms of the chair had closed round her wrists, and she was holding herself very still, the way you do when you think that if you move you'll cry.
 
 Behind her, along the wall at the back of the floor, on a long bench, sat eleven more.
 
-They were all ages. There was a boy who could not have been more than seventeen. There was an old man in a dressing gown, who looked as though he had been taken from his bed. There was a girl of about twenty with a baby's blanket over her shoulder and no baby. They sat in a row on the long bench, with two Dementors standing at either end of it, and they did not look at one another.
+They were all ages. There was a boy who couldn't have been more than seventeen. There was an old man in a dressing gown who looked as though he'd been taken from his bed. There was a girl of about twenty with a baby's blanket over her shoulder and no baby. They sat in a row on the long bench, with a Dementor standing at either end of it, and they didn't look at one another.
 
 Harry read them.
 
-He did it all at once, because there was no way not to, and it was the worst thing he had felt since a stone chamber under this same building, with a snake coiled on the steps. It was terror. Not loud terror. It was past loud. It was the quiet, flat, finished terror of twelve people who had been in the cells under this floor for days, with Dementors at the door, and who had stopped expecting anything except what was going to happen.
+He did it all at once, because there was no way not to, and it was the worst thing he'd felt since a stone chamber under this same building, with a snake coiled on the steps. It was terror. Not loud terror. It was past loud. It was the quiet, flat, finished terror of twelve people who'd been in the cells under this floor for days with Dementors at the door, and who'd stopped expecting anything except what was going to happen.
 
 "Mrs Pell," said Corvin Selwyn.
 
-His voice was low and reasonable and quite pleasant. It was a voice like water running over a stone. Harry had heard it once before, at the World Cup, saying *the boy is a credit to his house*, and he had thought then that it was the stillest voice he had ever heard.
+His voice was low and reasonable and quite pleasant, a voice like water running over a stone. Harry had heard it once before, at the World Cup, saying *the boy is a credit to his house*, and he'd thought then that it was the stillest voice he'd ever heard.
 
 "Mrs Pell, you were asked a question."
 
 "I'm sorry. I don't… I don't understand…"
 
-"It's a very simple question, Mrs Pell. You have told us that your wand is rowan, ten inches, with a core of dragon heartstring. You have told us that it was sold to you at the age of eleven, by Mr Ollivander. Mr Ollivander is, unfortunately, not available to confirm this." He paused, quite gently. "So I am asking you. Which witch or wizard did you take it from?"
+"It's a very simple question, Mrs Pell. You have told us your wand is rowan, ten inches, with a core of dragon heartstring. You have told us it was sold to you at the age of eleven by Mr Ollivander. Mr Ollivander is, unfortunately, not available to confirm this." He paused, quite gently. "So I'm asking you. Which witch or wizard did you take it from?"
 
 "I didn't take it from anybody. It *chose* me. In the shop. I was eleven. My mother was…"
 
-"Your mother," said Corvin Selwyn, "was a dinner lady. At a primary school in Swindon. I have it here." He did not look down at the parchment. "Your father drove a bus. Neither of them was a witch or a wizard. Neither of their parents was a witch or a wizard. You have no magical relations that we have been able to find. And yet you have a wand." He let a little silence go by. "You can see the difficulty, Mrs Pell."
+"Your mother," said Corvin Selwyn, "was a dinner lady. At a primary school in Swindon. I have it here." He didn't look down at the parchment. "Your father drove a bus. Neither of them was a witch or a wizard. Neither of their parents was a witch or a wizard. You have no magical relations that we have been able to find. And yet you have a wand." He let a little silence pass. "You can see the difficulty, Mrs Pell."
 
 Harry read him.
 
-He reached for him across the floor of Courtroom Ten, carefully, under all the faces he was holding, and found what he had found in a box at the World Cup three years ago.
+He reached for him across the floor of Courtroom Ten, carefully, beneath all the faces he was holding, and found what he'd found in a box at the World Cup three years ago.
 
 Attention.
 
-That was all. That was almost all of it. Corvin Selwyn was paying very close attention to the woman in the chair, the way a man pays attention to a board in a game where he already knows how it will end and wants to see how long the other side takes to notice. There was no hatred in it. There was no pleasure in it, either, not like the pink woman. It was a careful, cold, patient interest. And under it, a long way down, a very small satisfaction, aimed at nothing in this room. It was the satisfaction of a man who has backed the winning side, and been right, and is enjoying having been right.
+That was all. That was almost all of it. Corvin Selwyn was paying very close attention to the woman in the chair, the way a man watches a board in a game where he already knows how it ends and wants to see how long the other side takes to notice. There was no hatred in it. There was no pleasure either, not like the pink woman. It was a careful, cold, patient interest. And beneath it, a long way down, a very small satisfaction aimed at nothing in this room. The satisfaction of a man who's backed the winning side, and been right, and is enjoying having been right.
 
-He did not think about the woman in the chair at all, except as the woman in the chair.
+He didn't think about the woman in the chair at all, except as the woman in the chair.
 
-"Now," said the pink woman, sweetly, picking up a biscuit. "Shall we move on, Mr Chairman? There are eleven more this morning, and I do so hate to keep the poor Dementors waiting."
+"Now," said the pink woman sweetly, picking up a biscuit. "Shall we move on, Mr Chairman? There are eleven more this morning, and I do so hate to keep the poor Dementors waiting."
 
 * * *
+
 Evelyn had counted the steps from the door of Courtroom Ten to the foot of the high desk on the way in. Thirty-one. She walked them now, with the file under her arm.
 
-She had not been told to. That was not quite true. She had told herself to, at five in the morning in the projection room, when Potter said *I can hold four for an hour, maybe two*, and she had looked at his face and seen that he did not know whether it was one or two. She had decided then that somebody would need to make the hearing slower. And the only person in the room who could make Corvin Selwyn slower was somebody who knew exactly how he liked things done.
+She hadn't been told to. That wasn't quite true. She'd told herself to, at five in the morning in the projection room, when Potter said *I can hold four for an hour, maybe two*, and she'd looked at his face and seen he didn't know whether it was one or two. She'd decided then that somebody would need to make the hearing slower. And the only person in the room who could make Corvin Selwyn slower was somebody who knew exactly how he liked things done.
 
 She was the only person in the world who knew that.
 
 Twenty steps. Twenty-one.
 
-She could see her own hands holding the file. She could see her own grey sleeve. She knew that nobody else in the room could. Every person who looked at her saw a fair-haired girl with no chin called Miss Hopwood, because Potter was standing at the back of the courtroom in a face that was not his, holding a face that was not hers on a dozen minds at once, and holding three more besides, and she did not know how long he could hold it, and neither did he.
+She could see her own hands holding the file. She could see her own grey sleeve. She knew nobody else in the room could. Every person who looked at her saw a fair-haired girl with no chin called Miss Hopwood, because Potter was standing at the back of the courtroom in a face that wasn't his, holding a face that wasn't hers on a dozen minds at once, and three more besides, and she didn't know how long he could hold it, and neither did he.
 
-She did not look round at him.
+She didn't look round at him.
 
 Twenty-six. Twenty-seven.
 
 Her father looked up.
 
-He looked at her the way he looked at anyone who came towards his desk without being sent for. Politely. Attentively. With his hands folded, quite still. His grey eyes went over her face, and stopped there, and stayed there for a second, and nothing happened in them at all.
+He looked at her the way he looked at anyone who approached his desk without being sent for. Politely. Attentively. Hands folded, quite still. His grey eyes went over her face and stopped there, and stayed there a second, and nothing happened in them at all.
 
-He did not know her.
+He didn't know her.
 
 Evelyn noted it.
 
-She had wondered, walking down the stairs past the Dementors, whether she would feel anything when he looked at her and did not know her. She had thought she might. It seemed the sort of thing a person ought to feel something about. She noted now, standing at the foot of the high desk in Courtroom Ten with the file under her arm and her father's eyes going over a face that was not hers, that she did not feel anything.
+She'd wondered, walking down the stairs past the Dementors, whether she'd feel anything when he looked at her and didn't know her. She'd thought she might. It seemed the sort of thing a person ought to feel something about. She noted now, standing at the foot of the high desk in Courtroom Ten with the file under her arm and her father's eyes going over a face that wasn't hers, that she didn't feel anything.
 
-That was not true either. She noted that it was not true, and put it away, and did not look at it.
+That wasn't true either. She noted that it wasn't true, and put it away, and didn't look at it.
 
 "Yes?" said her father.
 
@@ -43292,33 +43293,33 @@ That was not true either. She noted that it was not true, and put it away, and d
 
 "Yes, Miss Hopwood."
 
-"I beg your pardon, Mr Chairman." Her voice was quite steady. It was her own voice. Potter could not change voices. She had said so in the projection room and he had said he would make them hear somebody else's, and she had said that was too many things at once, and she would simply speak quietly, and he had said all right. She spoke quietly. "There's a procedural difficulty."
+"I beg your pardon, Mr Chairman." Her voice was quite steady. It was her own voice. Potter couldn't change voices. She'd said so in the projection room, and he'd said he'd make them hear somebody else's, and she'd said that was too many things at once and she'd simply speak quietly, and he'd said all right. She spoke quietly. "There's a procedural difficulty."
 
 The pink woman put down her biscuit.
 
 "A *difficulty*, dear?"
 
-Evelyn did not look at her. She looked at her father.
+Evelyn didn't look at her. She looked at her father.
 
-"Under the Commission's terms of reference, sir. Paragraph eleven, sub-paragraph two. As laid before the Wizengamot on the fourth of September." She opened the file. There was nothing in it but a copy of the *Yorkshire Post*. Nobody could see that. She did not need them to. She had read the terms of reference in the *Prophet* in September, three times, in the projection room, at eleven at night, because she read everything, and had kept them in her head the way she kept everything. "A person under interview is entitled to have the full particulars of the finding sought read to them before any question is put. In writing. And a copy given." She looked up. "Mrs Pell hasn't had the particulars read. Neither have the others. I've checked the record. There's no entry."
+"Under the Commission's terms of reference, sir. Paragraph eleven, sub-paragraph two. As laid before the Wizengamot on the fourth of September." She opened the file. There was nothing in it but a copy of the *Yorkshire Post*. Nobody could see that. She didn't need them to. She'd read the terms of reference in the *Prophet* in September, three times, in the projection room at eleven at night, because she read everything, and she'd kept them in her head the way she kept everything. "A person under interview is entitled to have the full particulars of the finding sought read to them before any question is put. In writing. And a copy given." She looked up. "Mrs Pell hasn't had the particulars read. Neither have the others. I've checked the record. There's no entry."
 
 There was a short silence in Courtroom Ten.
 
-The young wizard on the right had stopped writing. The two bored men in plum had stopped being bored. The pink woman's smile had stayed exactly where it was, which Evelyn noted was a sign that it was not really a smile.
+The young wizard on the right had stopped writing. The two bored men in plum had stopped being bored. The pink woman's smile had stayed exactly where it was, which Evelyn noted was a sign that it wasn't really a smile.
 
 Her father looked at her.
 
-She had been looked at by him every morning across the breakfast table at Selwyn Hall for seventeen years. She knew every look he had. She knew the look for Lucan, which was approval. She knew the look for her mother, which was patience. She knew the look for herself, which was the look he gave a piece on the far side of the board that had not moved for a long time, and might never move, and was therefore not worth thinking about.
+She'd been looked at by him every morning across the breakfast table at Selwyn Hall for seventeen years. She knew every look he had. She knew the look for Lucan, which was approval. She knew the look for her mother, which was patience. She knew the look for herself, the one he gave a piece on the far side of the board that hadn't moved for a long time and might never move, and so wasn't worth thinking about.
 
-This was not any of those.
+This wasn't any of those.
 
-He was giving her the look he gave to a junior official who had found a mistake he had not found himself. She had seen it once, through a study door, aimed at a Ministry lawyer. It was cool, and careful, and interested, and very slightly amused, and it had respect in it.
+He was giving her the look he gave a junior official who'd found a mistake he hadn't found himself. She'd seen it once through a study door, aimed at a Ministry lawyer. It was cool and careful and interested and very slightly amused, and it had respect in it.
 
 "Paragraph eleven," said her father.
 
 "Sub-paragraph two, sir."
 
-He did not look at his parchment. He looked at her for three seconds more. She counted them.
+He didn't look at his parchment. He looked at her for three seconds more. She counted them.
 
 "Quite right," said Corvin Selwyn. "Thank you, Miss Hopwood. That was an oversight." He turned his head very slightly towards the young wizard on the right. "We'll have the particulars read. All twelve. In full. And copies made." He turned back. "Will you see to the copies, Miss Hopwood?"
 
@@ -43328,35 +43329,35 @@ He did not look at his parchment. He looked at her for three seconds more. She c
 
 She closed the file.
 
-She had corrected him once before, at nine years old, at breakfast, about the date of the Goblin Rebellion of 1612. He had gone on eating his toast and had not answered, and the next morning he had sent Lucan to tell her that a lady did not contradict her father at table. She had not corrected him again for nine years.
+She'd corrected him once before, at nine years old, at breakfast, about the date of the Goblin Rebellion of 1612. He'd gone on eating his toast and hadn't answered, and the next morning he'd sent Lucan to tell her that a lady didn't contradict her father at table. She hadn't corrected him again for nine years.
 
-He had conceded. Politely. To a stranger.
+He'd conceded. Politely. To a stranger.
 
-He had never once conceded anything to her in her life.
+He'd never once in her life conceded anything to her.
 
-She turned round and walked back across the floor of Courtroom Ten, thirty-one steps, past the chair with Mrs Pell in it, past the bench with the eleven others on it, past the Dementors, towards the clerks' table by the door, where the confiscated wands were kept in a long wooden box with a brass catch.
+She turned and walked back across the floor of Courtroom Ten, thirty-one steps, past the chair with Mrs Pell in it, past the bench with the eleven others, past the Dementors, towards the clerks' table by the door, where the confiscated wands were kept in a long wooden box with a brass catch.
 
 She noted that her hands were perfectly steady.
 
-She noted, a little further on, that she would very much like to sit down.
+She noted, a little further on, that she'd very much like to sit down.
 
 * * *
 
 It took eleven minutes to read the particulars.
 
-The young wizard on the right read them, in a flat voice, for Mrs Pell, and then began again for the boy who was seventeen. Hermione, at the clerks' table in the face of the tall grey records clerk, made copies with a Duplicating Charm and her hand shaking. Ron, in the face of Reg from Magical Maintenance, stood by the door with a mop he had found in a cupboard on the tenth floor, mopping the same yard of stone floor over and over.
+The young wizard on the right read them in a flat voice for Mrs Pell, then began again for the boy who was seventeen. Hermione, at the clerks' table in the face of the tall grey records clerk, made copies with a Duplicating Charm, her hand shaking. Ron, in the face of Reg from Magical Maintenance, stood by the door with a mop he'd found in a cupboard on the tenth floor, mopping the same yard of stone floor over and over.
 
 Evelyn stood beside the long wooden box with the brass catch.
 
 Harry stood at the back of the courtroom and held everything.
 
-He held Reg. He held the grey clerk. He held his own nobody. He held Miss Hopwood with no chin, on every mind in the room, every time anybody looked. Eleven minutes. He could feel the faces beginning to go thin at the edges, like ice on a puddle when the sun gets on it. His nose had begun to bleed inside the face, where nobody could see, and he could taste it.
+He held Reg. He held the grey clerk. He held his own nobody. He held Miss Hopwood with no chin on every mind in the room, every time anyone looked. Eleven minutes. He could feel the faces beginning to thin at the edges, like ice on a puddle when the sun gets to it. His nose had begun to bleed inside the face, where nobody could see, and he could taste it.
 
 He read the room.
 
-He had been reading it since he came in. Now he read it the way he had learned to on the screen, as a place, with every person in it a point of light. The pink woman, enjoying herself. The young wizard, bored and frightened under the boredom. The two plum-robed men. The clerks. Corvin Selwyn, attentive, waiting. The twelve on the bench and in the chair, flat and grey and finished.
+He'd been reading it since he came in. Now he read it the way he'd learned on the screen, as a place, with every person in it a point of light. The pink woman, enjoying herself. The young wizard, bored and frightened under the boredom. The two plum-robed men. The clerks. Corvin Selwyn, attentive, waiting. The twelve on the bench and in the chair, flat and grey and finished.
 
-And the two Dementors at either end of the bench. Two pits in the room, where the light went in and did not come out.
+And the two Dementors at either end of the bench. Two pits in the room, where the light went in and didn't come out.
 
 He looked at Evelyn.
 
@@ -43368,35 +43369,35 @@ He let the faces go.
 
 All of them, at once. He felt them go out of every mind in the room like lamps in a house when the power fails, and for one second every person in Courtroom Ten looked up and saw a short bald wizard become Ron Weasley, and a thin grey clerk become Hermione Granger, whose name was eleventh on a list, and a forgettable young man in grey become Harry Potter, whose face was on the wall in the Atrium.
 
-And a fair girl with no chin become a plain girl with brown hair, who was standing by the wand box, looking at the high desk.
+And a fair girl with no chin become a plain girl with brown hair, standing by the wand box, looking at the high desk.
 
-Harry was not looking at the high desk. He did not see what Corvin Selwyn's face did. He would ask Evelyn, weeks later, and she would say *nothing*, and he would not be able to tell whether that was true.
+Harry wasn't looking at the high desk. He didn't see what Corvin Selwyn's face did. He'd ask Evelyn weeks later, and she'd say *nothing*, and he wouldn't be able to tell whether that was true.
 
 "*Expecto Patronum*," said three voices together.
 
-The stag came out of Harry's wand at a gallop. An otter came out of Hermione's, and a small fierce terrier out of Ron's, and they went across the floor of Courtroom Ten at the Dementors like three lights thrown at once, and the cold broke.
+The stag burst from Harry's wand at a gallop. An otter came out of Hermione's, and a small fierce terrier out of Ron's, and they went across the floor of Courtroom Ten at the Dementors like three lights thrown at once, and the cold broke.
 
 Everything happened together after that.
 
-The pink woman was screaming. Not in fear. In outrage, high and furious, *seize them, seize them*, standing up behind the desk with her teacup over. The two men in plum had their wands half out and Ron hit one of them with the mop, hard, in the stomach, before Harry had time to Stun the other. The young wizard on the right dived under the desk. The Dementors were going up, backwards, up the tiers of benches into the dark at the top of the room, away from the three silver animals, and the cold went with them.
+The pink woman was screaming. Not in fear. In outrage, high and furious, *seize them, seize them*, on her feet behind the desk with her teacup knocked over. The two men in plum had their wands half out, and Ron hit one of them hard in the stomach with the mop before Harry had time to Stun the other. The young wizard on the right dived under the desk. The Dementors were going up, backwards, up the tiers of benches into the dark at the top of the room, away from the three silver animals, and the cold went with them.
 
-Evelyn had the wand box open. She was taking wands out of it, one after another, quite fast, and throwing them across the floor towards the bench, and they rolled and clattered on the stone.
+Evelyn had the wand box open. She was taking wands out of it one after another, quite fast, and throwing them across the floor towards the bench, where they rolled and clattered on the stone.
 
 Hermione was at the chair. "*Relashio*," she said, and the chains came off Mrs Pell's wrists with a clang.
 
-Corvin Selwyn had not moved.
+Corvin Selwyn hadn't moved.
 
-Harry saw that, in the middle of all of it. He saw it as one sees a single still thing in a running crowd. Evelyn's father was sitting behind the high desk with his hands folded on it, exactly as he had sat all morning. He had his wand out. It was lying on the desk in front of him, under his hands. He had not lifted it. He was watching. He was watching the plain girl with brown hair by the wand box throwing wands across the floor of his courtroom, and Harry reached for him, quickly, under everything, and found nothing in him but attention. Close, cold, careful attention.
+Harry saw that in the middle of everything, the way you see a single still thing in a running crowd. Evelyn's father sat behind the high desk with his hands folded on it, exactly as he'd sat all morning. He had his wand out. It lay on the desk in front of him, under his hands. He hadn't lifted it. He was watching. He was watching the plain girl with brown hair by the wand box throwing wands across the floor of his courtroom, and Harry reached for him, quickly, under everything, and found nothing in him but attention. Close, cold, careful attention.
 
-"*Go*," Harry shouted, at the bench. "Pick up a wand. Any wand. *Go*."
+"*Go*," Harry shouted at the bench. "Pick up a wand. Any wand. *Go*."
 
 Nobody on the bench moved.
 
 * * *
 
-They could not.
+They couldn't.
 
-Harry read them, all twelve, in the same instant, and understood. They had been in the cells under this floor for days. They had had Dementors at the door every night. Everything warm in them had been drawn up and out, the way water is drawn up out of the ground by the sun, and what was left was flat and grey and could not stand up. The doors were open. The wands were on the floor at their feet. The Dementors were gone up into the dark. And twelve people sat on a long bench and in a chair with their hands in their laps and looked at the wands on the floor and did not pick them up, because there was nothing left in them that could believe it would make any difference.
+Harry read all twelve in the same instant, and understood. They'd been in the cells under this floor for days. They'd had Dementors at the door every night. Everything warm in them had been drawn up and out, the way the sun draws water up out of the ground, and what was left was flat and grey and couldn't stand. The doors were open. The wands were on the floor at their feet. The Dementors had gone up into the dark. And twelve people sat on a long bench and in a chair with their hands in their laps and looked at the wands on the floor and didn't pick them up, because there was nothing left in them that could believe it would make any difference.
 
 There were footsteps on the stairs outside. Many of them. Coming down.
 
@@ -43406,31 +43407,31 @@ He had perhaps a minute. Perhaps less.
 
 He reached into them.
 
-He did not ask. There was no time to ask, and if there had been, they could not have answered, and he did not think about asking. He reached into the girl with the baby's blanket over her shoulder, and the old man in the dressing gown, and the boy who was seventeen, and Mrs Pell still in the chair with the chains hanging off it, and all the others, one after another, so fast that it was nearly all at once, and in every one of them, a very long way down, under the grey, he found something.
+He didn't ask. There was no time to ask, and if there had been they couldn't have answered, and he didn't think about asking. He reached into the girl with the baby's blanket over her shoulder, and the old man in the dressing gown, and the boy who was seventeen, and Mrs Pell still in the chair with the chains hanging off it, and all the others, one after another, so fast it was nearly all at once, and in every one of them, a very long way down beneath the grey, he found something.
 
-He had done this once before, in a mine under the sea, to two children.
+He'd done this once before, in a mine under the sea, to two children.
 
-It was very small. It was a coin at the bottom of a deep pocket. In the boy, it was a fight in a school playground in Rotherham, and standing up after being knocked down. In the girl with the blanket, it was a baby, and a door, and somebody on the other side of the door she would have gone through a wall for. In the old man it was a hill in Wales in nineteen forty-four and a field gun and his friend Davey. In Mrs Pell it was her own mother, a dinner lady in Swindon,, standing up at a parents' evening and telling a headmaster exactly what she thought of him.
+It was very small. A coin at the bottom of a deep pocket. In the boy it was a fight in a school playground in Rotherham, and getting up after being knocked down. In the girl with the blanket it was a baby, and a door, and someone on the other side of the door she'd have gone through a wall for. In the old man it was a hill in Wales in nineteen forty-four and a field gun and his friend Davey. In Mrs Pell it was her own mother, a dinner lady in Swindon, standing up at a parents' evening and telling a headmaster exactly what she thought of him.
 
-In every one of them, there was some small piece of courage that the Dementors had not been able to reach, because it was too far down, or too small, or too old.
+In every one of them there was some small piece of courage the Dementors hadn't been able to reach, because it was too far down, or too small, or too old.
 
-Harry took hold of it, in all twelve of them at once, and made it larger.
+Harry took hold of it in all twelve of them at once and made it larger.
 
 He made it very much larger.
 
-He pushed it up through the grey and the flatness and the finished terror like a fire going up through a dry wood, and it went up, and it filled them, and every one of the twelve people on the bench and in the chair stood up at the same moment, as though somebody had pulled a string.
+He pushed it up through the grey and the flatness and the finished terror like fire going up through a dry wood, and it rose and filled them, and every one of the twelve people on the bench and in the chair stood up at the same moment, as though somebody had pulled a string.
 
 The boy from Rotherham picked up a wand first. Then the old man. Then all of them.
 
 "Out," said Harry. "Up the stairs. Behind me. Don't stop."
 
-They did not stop.
+They didn't stop.
 
-He had never seen people move like that. They went out of Courtroom Ten in a body, past the Stunned men in plum, past the desk where the pink woman was still screaming and Corvin Selwyn was still sitting, and up the stone stairs, and the people coming down the stairs met them halfway, four Ministry wizards and a Dementor behind, and the twelve went into them like a wave going into a sea wall, and over them, with wands they had not held for a week going off in every direction. A Dementor came down the stairs and the old man in the dressing gown turned and shouted something in Welsh at it and a thin silver shape came out of his wand that might have been a dog, and the Dementor stopped.
+He'd never seen people move like that. They went out of Courtroom Ten in a body, past the Stunned men in plum, past the desk where the pink woman was still screaming and Corvin Selwyn was still sitting, and up the stone stairs. The people coming down met them halfway, four Ministry wizards with a Dementor behind them, and the twelve went into them like a wave hitting a sea wall, and over them, with wands they hadn't held for a week going off in every direction. A Dementor came down the stairs, and the old man in the dressing gown turned and shouted something at it in Welsh, and a thin silver shape that might have been a dog came out of his wand, and the Dementor stopped.
 
 Harry ran behind them.
 
-He was holding nothing now. No faces. He did not need faces. He threw an empty corridor into the minds of everybody they passed on the ninth level, and a lift that had already gone into the minds of everybody waiting for one, and in the Atrium, as they came out of the lifts in a pack, he threw two thousand people's eyes at the far end of the hall, at a fireplace that had begun, apparently, to spout green fire to the ceiling, and they all turned to look at it, and the twelve and the four went the other way, past the black statue with the people underneath it, through the staff door, into the fitting room of Morrison & Daughter, Bespoke, and out.
+He was holding nothing now. No faces. He didn't need faces. He threw an empty corridor into the minds of everyone they passed on the ninth level, and a lift that had already gone into the minds of everyone waiting for one. In the Atrium, as they spilled out of the lifts in a pack, he threw two thousand people's eyes at the far end of the hall, at a fireplace that had apparently begun spouting green fire to the ceiling, and they all turned to look at it. The twelve and the four went the other way, past the black statue with the people underneath it, through the staff door, into the fitting room of Morrison & Daughter, Bespoke, and out.
 
 * * *
 
@@ -43444,7 +43445,7 @@ Bill Weasley was standing on the pavement outside the tailor's with an armful of
 
 "Right." Bill was already handing them out. "Portkeys. Each one goes to a different house. Don't swap. Hold it with both hands, it goes in ten seconds. Go on." He looked at the twelve, standing on the pavement in Whitehall with their wands in their hands and their faces lit up, the old man in the dressing gown still breathing hard, the boy from Rotherham laughing, Mrs Pell holding the hand of the girl with the baby's blanket. He looked at them for a long moment. "Merlin," he said. "You lot look ready to go back in."
 
-The boots went, one after another, with small pops. Then Bill was gone with them.
+The boots went one after another with small pops. Then Bill was gone with them.
 
 The four of them stood outside a closed tailor's shop in Great Scotland Yard with buses going past.
 
@@ -43454,15 +43455,15 @@ Hermione turned to Harry.
 
 "For what?"
 
-"For that. All of it. For getting us in. And for…" She stopped. She had seen it. Harry knew she had seen it. She had been standing at the chair with the chains in her hand when twelve people who could not stand up stood up all at once, as though somebody had pulled a string. "Harry. What did you do to them?"
+"For that. All of it. For getting us in. And for…" She stopped. She'd seen it. Harry knew she had. She'd been standing at the chair with the chains in her hand when twelve people who couldn't stand up stood up all at once, as though somebody had pulled a string. "Harry. What did you do to them?"
 
 He told her.
 
-He did not lie. He did not need to. He told her in plain words, standing on the pavement, what he had found at the bottom of each of them, and what he had done with it. A playground in Rotherham. A baby. A field gun. A parents' evening in Swindon. Made larger. Without asking.
+He didn't lie. He didn't need to. He told her in plain words, standing on the pavement, what he'd found at the bottom of each of them and what he'd done with it. A playground in Rotherham. A baby. A field gun. A parents' evening in Swindon. Made larger. Without asking.
 
 Hermione listened to all of it.
 
-When he had finished she did not say anything. She looked at him for a long time. Then she looked at the traffic. Then she went quite quiet, in a way Harry could read very clearly, and the quiet was not anger, and not fear either, but a kind of careful, deliberate stillness that Hermione put over something when she did not yet know what she thought about it and did not want to find out in front of anybody.
+When he'd finished she said nothing. She looked at him for a long time. Then she looked at the traffic. Then she went quite quiet, in a way Harry could read very clearly. The quiet wasn't anger, and it wasn't fear either. It was a careful, deliberate stillness that Hermione laid over something when she didn't yet know what she thought about it and didn't want to find out in front of anyone.
 
 "It was worth it," said Ron.
 
@@ -43470,41 +43471,41 @@ He said it loudly, as though somebody had argued. Nobody had.
 
 "Twelve people," said Ron. "They'd have gone to Azkaban. Or worse. You heard Selwyn. You heard her. You got them out. All of them. It was worth it. Whatever it was."
 
-"Yes," said Hermione, quietly. "I know."
+"Yes," said Hermione quietly. "I know."
 
 Evelyn said nothing at all.
 
-She was standing a little apart from them, by the window of Morrison & Daughter with the headless dummy in it, with her hands in the pockets of her grey cardigan. She was not looking at Harry. She was looking at the reflection in the shop window, at the four of them standing in a row on the pavement, as they really were.
+She was standing a little apart from them by the window of Morrison & Daughter with the headless dummy in it, her hands in the pockets of her grey cardigan. She wasn't looking at Harry. She was looking at the reflection in the shop window, at the four of them standing in a row on the pavement as they really were.
 
-Harry could not read her.
+Harry couldn't read her.
 
-He had learned, over six years, that when Evelyn Selwyn said nothing, it was the loudest thing she ever said.
+He'd learned over six years that when Evelyn Selwyn said nothing, it was the loudest thing she ever said.
 
-He did not ask her what it meant.
+He didn't ask her what it meant.
 
 * * *
 
-He went down to the screen that night at eleven and did not make anything on it.
+He went down to the screen that night at eleven and didn't make anything on it.
 
 He sat in the front row of the Majestic, where Evelyn sometimes sat, with his feet on the rail of the orchestra pit and the grey canvas in front of him, and thought about Courtroom Ten.
 
 He thought about twelve people on a bench, flat and grey and finished.
 
-He thought about reaching into them, one after another, and finding the coin at the bottom of each one, and taking hold of it.
+He thought about reaching into them one after another, finding the coin at the bottom of each, and taking hold of it.
 
-He thought about the moment they stood up. All twelve, at once, as though somebody had pulled a string. And the somebody had been him.
+He thought about the moment they stood up. All twelve at once, as though somebody had pulled a string. And the somebody had been him.
 
 He sat in the dark for a long time.
 
-He had expected to feel sick. He had felt sick after Quirrell, for years. He had felt sick after a boy in the bathroom, in the red water, going quiet. He had felt nothing much after the children in the mine, and had noticed that, and put it away. He sat in the front row of a dead cinema and looked for the sickness now, carefully, the way you look for a coin in a pocket, and it was not there.
+He'd expected to feel sick. He'd felt sick after Quirrell, for years. He'd felt sick after a boy in the bathroom going quiet in the red water. He'd felt nothing much after the children in the mine, and had noticed that, and put it away. He sat in the front row of a dead cinema and looked for the sickness now, carefully, the way you feel for a coin in a pocket, and it wasn't there.
 
 What was there was something else.
 
 He found it and looked at it, quite calmly, for some time.
 
-It had been the best moment of his day. Not the faces, not the Atrium, not getting out. The moment twelve people stood up because he had decided they would. He had felt it go through them, all of them, his own hand on twelve strings at once, and it had worked, perfectly, and it had been the cleanest, simplest, most certain thing he had ever done.
+It had been the best moment of his day. Not the faces, not the Atrium, not getting out. The moment twelve people stood up because he'd decided they would. He'd felt it go through them, all of them, his own hand on twelve strings at once, and it had worked perfectly, and it had been the cleanest, simplest, most certain thing he'd ever done.
 
-He had liked it.
+He'd liked it.
 
 <->
 
