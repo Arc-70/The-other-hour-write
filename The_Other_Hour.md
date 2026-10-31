@@ -48275,11 +48275,11 @@ He reached again.
 
 Neville carried Millicent.
 
-Nobody asked him to. Nobody said anything. Harry was sitting up on the ferns with Evelyn's hands still round his, and Neville put his wand away in his pocket and went down on one knee beside Millicent and got his arms under her, under her knees and her shoulders, the way you would lift somebody who had fallen asleep in a chair, and stood up.
+Nobody asked him to. Nobody said anything. Harry was sitting up on the ferns with Evelyn's hands still round his, and Neville put his wand away in his pocket and went down on one knee beside Millicent and got his arms under her, under her knees and her shoulders, the way you'd lift somebody who'd fallen asleep in a chair, and stood up.
 
-She was very heavy. She had always been heavy. She had been the biggest girl in their year since they were eleven, and Pansy Parkinson had called her a wardrobe for six years, and Millicent had once picked Pansy up by the back of her robes and put her on top of an actual wardrobe in the second-year dormitory and left her there until supper.
+She was very heavy. She'd always been heavy. She'd been the biggest girl in their year since they were eleven, and Pansy Parkinson had called her a wardrobe for six years, and Millicent had once picked Pansy up by the back of her robes and put her on top of an actual wardrobe in the second-year dormitory and left her there until supper.
 
-Neville stood up with her. He staggered once. Then he did not stagger again.
+Neville stood up with her. He staggered once. Then he didn't stagger again.
 
 "Right," said Neville.
 
@@ -48289,43 +48289,43 @@ He began to walk.
 
 Harry walked beside him.
 
-He did not remember getting up. He was standing, and Evelyn had let go of his hand at some point, and he was walking beside Neville through the trees, uphill, in the grey before the dawn, with Millicent's boots swinging a little at every step. He could see her face. It was turned in against Neville's shoulder. Somebody had closed her eyes.
+He didn't remember getting up. He was standing, and Evelyn had let go of his hand at some point, and he was walking beside Neville through the trees, uphill, in the grey before the dawn, Millicent's boots swinging a little at every step. He could see her face. It was turned in against Neville's shoulder. Somebody had closed her eyes.
 
 He looked at Neville.
 
-Neville's face was very white and set, and wet, and his jaw was tight with the weight. Harry looked at him and waited to know what he was feeling.
+Neville's face was very white and set and wet, his jaw tight with the weight. Harry looked at him and waited to know what he was feeling.
 
-He did not know.
+He didn't know.
 
-He looked at him a little longer. He did it the way he had done it all his life, without thinking, the way you put your hand on a rail going down a stair. And there was nothing there. Not silence. Not a door. Just Neville's face, white and wet, and Harry looking at it from the outside.
+He looked at him a little longer. He did it the way he'd done it all his life, without thinking, the way you put your hand on a rail going down a stair. And there was nothing there. Not silence. Not a door. Just Neville's face, white and wet, and Harry looking at it from the outside.
 
 He looked away.
 
-Ron was on his other side, a pace behind. Harry looked at him. Ron had dust in his hair and blood dried on one side of his neck and a long tear down the sleeve of his jumper, and his face was doing something, and Harry could not tell what.
+Ron was on his other side, a pace behind. Harry looked at him. Ron had dust in his hair and blood dried down one side of his neck and a long tear in the sleeve of his jumper, and his face was doing something, and Harry couldn't tell what.
 
 He looked away from Ron too.
 
-Behind Ron, Hermione. Behind Hermione, at a little distance, on his own, with his hands at his sides and his mother's wand in one of them, Draco.
+Behind Ron, Hermione. Behind Hermione, at a little distance, alone, his hands at his sides and his mother's wand in one of them, Draco.
 
 And on Harry's other side, half a pace behind his shoulder, Evelyn.
 
-He did not look at her. He knew what he would find. He had found it for seven years. It did not matter now.
+He didn't look at her. He knew what he'd find. He'd found it for seven years. It didn't matter now.
 
-They came to the clearing's edge, and the stream, which was running straight in its bank, and the stepping stones.
+They came to the clearing's edge, and the stream, running straight in its bank, and the stepping stones.
 
 There was a man sitting on the far bank.
 
-He was in black robes, with a silver mask hanging from his hand by its strap, and he was sitting on the wet grass with his knees drawn up and his wand on the ground beside him, and he was looking at the stream. He was perhaps forty. He had a round face and thinning hair and a small neat moustache. He looked up when they came out of the trees, at Neville, at the girl in Neville's arms, at Harry. He did not reach for his wand.
+He was in black robes, with a silver mask hanging from his hand by its strap, sitting on the wet grass with his knees drawn up and his wand on the ground beside him, looking at the stream. He was perhaps forty. He had a round face and thinning hair and a small neat moustache. He looked up when they came out of the trees, at Neville, at the girl in Neville's arms, at Harry. He didn't reach for his wand.
 
 His face was wet.
 
-He looked, Harry thought, like a man who has woken up in a strange bedroom and does not know how he got there. His mouth was a little open. His eyes went from Neville's face to Millicent's and back again, and he did not seem to understand either of them.
+He looked, Harry thought, like a man who's woken up in a strange bedroom and doesn't know how he got there. His mouth was a little open. His eyes went from Neville's face to Millicent's and back, and he didn't seem to understand either of them.
 
 "I don't…" he said. He stopped. "I was in my kitchen."
 
 Nobody answered him.
 
-"I was in my *kitchen*," the man said again, more loudly, as though they had disagreed with him. "In Sevenoaks. I was making toast. On Tuesday. I was making toast and somebody came to the door, and…"
+"I was in my *kitchen*," the man said again, more loudly, as though they'd disagreed. "In Sevenoaks. I was making toast. On Tuesday. I was making toast and somebody came to the door, and…"
 
 He looked down at the mask in his hand.
 
@@ -48335,11 +48335,11 @@ Neville walked past him over the stepping stones without stopping.
 
 Harry stopped.
 
-He stood on the near bank and looked at the man, and the man looked back at him, and Harry waited, out of seven years of habit, to know whether he was lying. To know what was under the bewilderment. Whether there was shame under it, or relief, or the old hot gladness of a man who had come up a hill to burn a castle.
+He stood on the near bank and looked at the man, and the man looked back, and Harry waited, out of seven years' habit, to know whether he was lying. To know what lay beneath the bewilderment. Whether there was shame under it, or relief, or the old hot gladness of a man who'd come up a hill to burn a castle.
 
-He did not know.
+He didn't know.
 
-He looked at the man's face. It was a wet round face with a neat moustache. It told him nothing it did not tell everybody.
+He looked at the man's face. It was a wet round face with a neat moustache. It told him nothing it didn't tell everybody.
 
 "Kingsley will be along," said Harry. "Stay there."
 
@@ -48351,13 +48351,13 @@ Harry crossed the stones.
 
 There were more of them on the lawn.
 
-He saw them as they came out of the trees, in the grey light. They were all over the long slope between the Forest and the castle, in ones and twos, the way people are scattered over a field after a fair. Some were standing. Most were sitting. Some had their masks off and some had them on, pushed up on their foreheads like spectacles. Some had their hands on their heads, the way you put your hands on your head when you have been told to by somebody with a wand, though there was nobody near them with a wand. One woman was walking very slowly in a circle near the pumpkin patch, round and round, with her arms wrapped round herself. One man was lying on his back looking at the sky.
+He saw them as they came out of the trees in the grey light. They were all over the long slope between the Forest and the castle, in ones and twos, the way people are scattered over a field after a fair. Some were standing. Most were sitting. Some had their masks off and some had them on, pushed up on their foreheads like spectacles. Some had their hands on their heads, the way you put your hands on your head when told to by somebody with a wand, though there was nobody near them with a wand. One woman was walking very slowly in a circle near the pumpkin patch, round and round, her arms wrapped round herself. One man lay on his back looking at the sky.
 
-Kingsley's people were moving among them. There were Aurors in the grounds now, a great many, in the plain dark robes of the Ministry, and some of them had arrived in the night from London and some of them, Harry saw, were still wearing the black robes they had fought in, with their masks gone.
+Kingsley's people were moving among them. There were Aurors in the grounds now, a great many, in the plain dark robes of the Ministry. Some had arrived in the night from London, and some, Harry saw, were still wearing the black robes they'd fought in, their masks gone.
 
 "What happened?" said Harry.
 
-He said it to Ron. He had to. He did not know whether Ron knew.
+He said it to Ron. He had to. He didn't know whether Ron knew.
 
 Ron looked at him.
 
@@ -48365,7 +48365,7 @@ Ron looked at him.
 
 "No."
 
-"I thought you'd…" Ron stopped. He looked at Harry's face, and something went over his own, and Harry could not tell what it was. "When he died. When he went down. It all just… stopped. Like that." He snapped his fingers. It did not make a sound. His fingers were too dirty. "They were coming at us. All round. Thirty of them, forty, through the trees. Bulstrode was…" He did not finish. "And then he went down, and they all just stopped. In the middle of a curse. One of them was halfway through a word. They all just stood there and looked at each other, like they'd all woken up in the same room, and then about half of them sat down on the ground, and the rest legged it."
+"I thought you'd…" Ron stopped. He looked at Harry's face, and something crossed his own, and Harry couldn't tell what it was. "When he died. When he went down. It all just… stopped. Like that." He snapped his fingers. It made no sound. His fingers were too dirty. "They were coming at us. All round. Thirty of them, forty, through the trees. Bulstrode was…" He didn't finish. "And then he went down, and they all just stopped. In the middle of a curse. One of them was halfway through a word. They all just stood there and looked at each other, like they'd all woken up in the same room, and then about half of them sat down on the ground, and the rest legged it."
 
 "Kingsley says it's the same in London," said Hermione. "He sent a Patronus at about two. The Ministry. Everyone who was under the Imperius. Everyone who'd been *held*, he said. They all came out of it at once. A quarter to one. There are people in the Atrium in their nightclothes who don't know what year it is."
 
@@ -48373,9 +48373,9 @@ Ron looked at him.
 
 "That's what he said."
 
-He thought about the lean. The Forest leaning, the trees, the ferns, the stream at a slant against its bank. Three hundred minds leaning one way like grass in a wind, and most of them not knowing it. A thousand children at the windows on a lawn last summer, going down on their knees.
+He thought about the lean. The Forest leaning, the trees, the ferns, the stream at a slant against its bank. Three hundred minds leaning one way like grass in a wind, most of them not knowing it. A thousand children at the windows on a lawn last summer, going down on their knees.
 
-He had not done it. He knew that quite clearly. He had not freed anybody. He had been inside a falling castle, looking for a door. The man by the stream had stopped making toast because the man who made him stop had died, and it would have happened whoever had killed him, and however.
+He hadn't done it. He knew that quite clearly. He hadn't freed anybody. He'd been inside a falling castle, looking for a door. The man by the stream had stopped making toast because the man who'd made him stop had died, and it would have happened whoever killed him, and however.
 
 He looked at the woman walking in circles by the pumpkin patch.
 
@@ -48387,15 +48387,15 @@ He walked on.
 
 The Great Hall was full.
 
-There were people in it from every house and every year and from the village and from London, and the four long tables had been pushed back against the walls, and the enchanted ceiling was the grey of a morning that had not quite decided to happen. The noise was very great. Harry stood just inside the doors with Neville beside him and Millicent in Neville's arms and let it come at him, the way he had let the noise of every room in his life come at him, and turned to turn it down.
+There were people in it from every house and every year, and from the village and from London, and the four long tables had been pushed back against the walls, and the enchanted ceiling was the grey of a morning that hadn't quite decided to happen. The noise was very great. Harry stood just inside the doors with Neville beside him and Millicent in Neville's arms and let it come at him, the way he'd let the noise of every room in his life come at him, and turned to turn it down.
 
 There was nothing to turn down.
 
 There was the noise. There were voices. Hundreds of them. Somebody crying near the staff table, and somebody laughing near the windows, a high cracked laugh that went on too long, and a great many people talking at once. He could hear it. He could hear all of it.
 
-He did not know what any of it was.
+He didn't know what any of it was.
 
-He stood just inside the doors and looked out across the Hall, at three hundred people, and they were faces. They were only faces. They were moving and talking and crying and laughing and holding on to each other, and he looked at them, one after another, the way you look along a shelf for a book, and every one of them was closed. Every one of them was the way Evelyn had been for seven years. Not a door, even. Just a face, from the outside.
+He stood just inside the doors and looked out across the Hall at three hundred people, and they were faces. They were only faces. They were moving and talking and crying and laughing and holding on to each other, and he looked at them one after another, the way you look along a shelf for a book, and every one of them was closed. Every one of them was the way Evelyn had been for seven years. Not even a door. Just a face, from the outside.
 
 He reached again. He reached for the girl crying near the staff table, who was eleven or twelve and holding the hand of a boy her own age, and he found her face, and her hand, and the boy's hand, and that was all.
 
@@ -48411,69 +48411,69 @@ He looked at Neville.
 
 * * *
 
-The row ran the whole length of the wall under the windows on the left-hand side.
+The row ran the whole length of the wall beneath the windows on the left-hand side.
 
-There were more than there had been at midnight. Harry walked along it with Neville. He did not want to and he did. He walked behind Neville down the length of the Great Hall and looked at every one, because somebody ought to, and because Evelyn was behind him, and she was looking at every one as well. He knew that without looking at her. She would be counting.
+There were more than there had been at midnight. Harry walked along it with Neville. He didn't want to, and he did. He walked behind Neville down the length of the Great Hall and looked at every one, because somebody ought to, and because Evelyn was behind him, and she was looking at every one as well. He knew that without looking at her. She'd be counting.
 
 Fred was near the doors, with his mother beside him.
 
-Mrs Weasley was sitting on the floor with her back to the wall and Fred's head in her lap. She was stroking his hair. She was doing it very slowly, from the forehead back, over and over, the way you stroke the hair of a child with a temperature, and she was not crying. She had stopped crying. Arthur was beside her with his arm round her and a bandage round his head, and George was sitting on Fred's other side with his knees drawn up and his face on his knees.
+Mrs Weasley was sitting on the floor with her back to the wall and Fred's head in her lap. She was stroking his hair. She was doing it very slowly, from the forehead back, over and over, the way you stroke the hair of a child with a temperature, and she wasn't crying. She'd stopped crying. Arthur was beside her with his arm round her and a bandage round his head, and George sat on Fred's other side with his knees drawn up and his face on his knees.
 
 Harry stopped.
 
-Mrs Weasley looked up at him. She looked at him for a long moment, and her face was swollen and blotched and quite still, and he did not know what was in it. He did not know whether it was grief or blame or love or nothing. He had known what was in Molly Weasley's face at every meal in the Burrow kitchen, and at a wedding, and on a dance floor with Sirius treading on her feet. He did not know it now.
+Mrs Weasley looked up at him. She looked at him for a long moment, her face swollen and blotched and quite still, and he didn't know what was in it. He didn't know whether it was grief or blame or love or nothing. He'd known what was in Molly Weasley's face at every meal in the Burrow kitchen, and at a wedding, and on a dance floor with Sirius treading on her feet. He didn't know it now.
 
 "Harry, love," she said.
 
-She held her hand out.
+She held out her hand.
 
-He took it. He did not know what else to do. He stood there holding Molly Weasley's hand over her dead son's head in the Great Hall, and she held his very hard, and he did not know why.
+He took it. He didn't know what else to do. He stood there holding Molly Weasley's hand over her dead son's head in the Great Hall, and she held his very hard, and he didn't know why.
 
-Then she let go, and went back to stroking Fred's hair.
+Then she let go and went back to stroking Fred's hair.
 
 Harry walked on.
 
-Lupin was in the middle of the row. Somebody had crossed his hands on his chest and put his wand in them, and his face had been washed, and it was turned a little to one side still, because nobody had been able to straighten it. The scar through his eyebrow was very white. There was a coin beside his hand on the flagstones. Harry knew it, because he had seen Lupin touching it all evening in the Room. It was one of Hermione's coins. Somebody had taken it out of Lupin's pocket and put it there, and there were two letters scratched small on the rim with the point of a knife. *R.L.*
+Lupin was in the middle of the row. Somebody had crossed his hands on his chest and put his wand in them, and his face had been washed, and it was still turned a little to one side, because nobody had been able to straighten it. The scar through his eyebrow was very white. There was a coin on the flagstones beside his hand. Harry knew it, because he'd seen Lupin touching it all evening in the Room. It was one of Hermione's coins. Somebody had taken it out of Lupin's pocket and put it there, and there were two letters scratched small on the rim with the point of a knife. *R.L.*
 
 He looked at the coin for some time.
 
-He had read the determination in Lupin at the top of the steps. The new raw thing over the old grief. He had not asked what it was for. Nobody, now, would ever be able to tell him.
+He'd read the determination in Lupin at the top of the steps. The new raw thing over the old grief. He hadn't asked what it was for. Nobody, now, would ever be able to tell him.
 
 He walked on.
 
 Hagrid was at the end of the row.
 
-He was still on the door they had carried him in on. Nobody had been able to move him off it. It had taken six of them to bring him in, Bill and Charlie and Kingsley and two Aurors and the man who had come up from the Hog's Head with Aberforth, and they had put the door down on the flagstones at the end of the row and covered him with three tablecloths from the staff table, and the tablecloths did not reach his boots.
+He was still on the door they'd carried him in on. Nobody had been able to move him off it. It had taken six of them to bring him in, Bill and Charlie and Kingsley and two Aurors and the man who'd come up from the Hog's Head with Aberforth, and they'd laid the door down on the flagstones at the end of the row and covered him with three tablecloths from the staff table, and the tablecloths didn't reach his boots.
 
-Fang was lying beside him with his head on Hagrid's boot.
+Fang lay beside him with his head on Hagrid's boot.
 
-He did not get up when Neville came. He moved his eyes, and his tail moved once on the flagstones, and then he put his head back down.
+He didn't get up when Neville came. He moved his eyes, and his tail thumped once on the flagstones, and then he put his head back down.
 
-Neville knelt, very carefully, and put Millicent down beside the door.
+Neville knelt, very carefully, and laid Millicent down beside the door.
 
-He did it slowly. He straightened her legs, and put her arms by her sides, and moved her hair off her face, and then he took his own cloak off and put it over her, up to her chin, and then he looked at her for a while and pulled it up over her face.
+He did it slowly. He straightened her legs and put her arms by her sides and moved her hair off her face, and then he took off his own cloak and laid it over her, up to her chin, and looked at her for a while, and pulled it up over her face.
 
 Then he stayed kneeling.
 
-Harry stood over them both. The three of them. Hagrid on his door under the tablecloths, and Fang, and Millicent under Neville's cloak, with her boots sticking out at the end because Neville's cloak was not long enough either.
+Harry stood over them. The three of them. Hagrid on his door under the tablecloths, and Fang, and Millicent under Neville's cloak, her boots sticking out at the end because Neville's cloak wasn't long enough either.
 
 *Mum says if I die she'll kill me.*
 
-He reached for Neville. He did not decide to. He reached for him the way you put your tongue into the gap where a tooth has been, again and again, to see if it is still gone. It was still gone. Neville was kneeling a foot away from him on the flagstones with his head bowed, and Harry could see the back of his neck and the dirt on his collar and his hands on his knees, and that was all there was.
+He reached for Neville. He didn't decide to. He reached for him the way you put your tongue into the gap where a tooth has been, again and again, to see if it's still gone. It was still gone. Neville was kneeling a foot away on the flagstones with his head bowed, and Harry could see the back of his neck and the dirt on his collar and his hands on his knees, and that was all there was.
 
 He tried again.
 
-He did not tell anybody he was doing it. He stood at the end of the row and did it, over and over, the way you keep pressing on a bruise.
+He told nobody he was doing it. He stood at the end of the row and did it over and over, the way you keep pressing on a bruise.
 
 "Potter," said Evelyn.
 
-She was beside him. He had not heard her come. He had not felt her. He had not felt her for seven years, and he had always known where she was, and he had not known she was there until she spoke.
+She was beside him. He hadn't heard her come. He hadn't felt her. He'd never felt her in seven years, and he'd always known where she was, and he hadn't known she was there until she spoke.
 
 He looked at her.
 
 "Yes," he said.
 
-She looked at him for a moment, the way she looked at a page of figures where something did not add up.
+She looked at him for a moment, the way she looked at a page of figures where something didn't add up.
 
 "Nothing," said Evelyn. "Come and sit down."
 
@@ -48481,11 +48481,11 @@ She looked at him for a moment, the way she looked at a page of figures where so
 
 There was one at the very end of the row, near the doors, that nobody had covered.
 
-It was a young man in plain black robes with fair hair full of dust. He was lying on his back where they had put him at midnight, with his eyes closed, and his hands at his sides, and one of them was palm up.
+It was a young man in plain black robes with fair hair full of dust. He lay on his back where they'd put him at midnight, his eyes closed and his hands at his sides, one of them palm up.
 
-People walked past him. They walked past him on their way in and out of the doors, and some of them looked down and saw the robes, which were the robes of the Minister's office, and their faces did something, and they walked on a little faster. One of the Aurors had stopped beside him at about five o'clock with a list and a quill, and looked at him, and looked at his list, and written something, and gone on. Nobody had sat with him. Nobody had put anything over his face.
+People walked past him. They walked past him on their way in and out of the doors, and some looked down and saw the robes, which were the robes of the Minister's office, and their faces did something, and they walked on a little faster. One of the Aurors had stopped beside him at about five o'clock with a list and a quill, looked at him, looked at his list, written something, and gone on. Nobody had sat with him. Nobody had put anything over his face.
 
-"Who is he?" said a woman Harry did not know, to the man beside her, by the door.
+"Who is he?" a woman Harry didn't know asked the man beside her, by the door.
 
 "Selwyn. The son. Corvin Selwyn's boy."
 
@@ -48495,67 +48495,67 @@ People walked past him. They walked past him on their way in and out of the door
 
 "Well, somebody can take him out again."
 
-Evelyn was sitting on the end of the Ravenclaw bench, three yards away, with a cup of tea that Hermione had given her. She did not look round.
+Evelyn was sitting at the end of the Ravenclaw bench three yards away with a cup of tea Hermione had given her. She didn't look round.
 
 Harry looked at the back of her head.
 
-He did not know what she was feeling. He had never known. It was exactly the same as it had always been, and it was completely different, and he could not have said how.
+He didn't know what she was feeling. He'd never known. It was exactly as it had always been, and completely different, and he couldn't have said how.
 
-He got up, and went to the staff table, and took the last tablecloth off it, the one with the gravy stain at one end, and came back and put it over Lucan Selwyn, up to the chin, and then over his face.
+He got up and went to the staff table and took the last tablecloth off it, the one with the gravy stain at one end, and came back and laid it over Lucan Selwyn, up to the chin, and then over his face.
 
-The woman by the door watched him do it. Her face did something. He did not know what.
+The woman by the door watched him do it. Her face did something. He didn't know what.
 
-He went and sat down next to Evelyn on the end of the Ravenclaw bench.
+He went and sat down beside Evelyn at the end of the Ravenclaw bench.
 
-She did not say anything. She drank her tea.
+She said nothing. She drank her tea.
 
 * * *
 
 Draco and Narcissa left at twenty past five.
 
-Harry saw them go. He was sitting on the bench with his back to the table and his elbows on his knees, the way he had sat on a step in the snow, and he was watching the doors, because he could not think of anything else to watch.
+Harry saw them go. He was sitting on the bench with his back to the table and his elbows on his knees, the way he'd sat on a step in the snow, and he was watching the doors, because he couldn't think of anything else to watch.
 
-Narcissa came in at ten past. She came in on her own, from the Entrance Hall, in the same dark dress she had worn in the clearing, with leaves caught in the hem of it and her hair down. She did not look at anybody. She stood just inside the doors and looked along the Hall, from one end to the other, very slowly, at all the faces, the way a woman looks along a railway platform.
+Narcissa came in at ten past. She came in alone, from the Entrance Hall, in the same dark dress she'd worn in the clearing, with leaves caught in the hem and her hair down. She looked at nobody. She stood just inside the doors and looked along the Hall from one end to the other, very slowly, at all the faces, the way a woman looks along a railway platform.
 
 Then she found him.
 
-Draco was sitting on the floor against the wall at the far end, by himself, with his mother's wand across his knees, where he had been since they came in.
+Draco was sitting on the floor against the wall at the far end, alone, with his mother's wand across his knees, where he'd been since they came in.
 
-She went down the Hall to him. She did not hurry. People got out of her way without knowing who she was, and some of them knew who she was and got out of her way faster. She stopped in front of him. She did not say anything. She put out her hand.
+She went down the Hall to him. She didn't hurry. People got out of her way without knowing who she was, and some knew who she was and got out of her way faster. She stopped in front of him. She said nothing. She put out her hand.
 
 Draco looked up at her.
 
 He gave her the wand.
 
-She took it, and put it away somewhere in her dress, and then she put her hand down again, and Draco took it, and she pulled him up off the floor as though he weighed nothing, and they walked back up the Hall together towards the doors, side by side, not touching, without a word to anybody.
+She took it and put it away somewhere in her dress, then put her hand down again, and Draco took it, and she pulled him up off the floor as though he weighed nothing, and they walked back up the Hall together towards the doors, side by side, not touching, without a word to anyone.
 
 Harry watched them come.
 
-They passed within a yard of him. Narcissa did not look at him. She looked straight ahead at the doors, with her face quite still and her hands together, and leaves in the hem of her dress.
+They passed within a yard of him. Narcissa didn't look at him. She looked straight ahead at the doors, her face quite still, her hands together, leaves in the hem of her dress.
 
 Draco looked.
 
-He looked back once, from the doorway, over his shoulder. It was a very short look. It lasted perhaps a second. He looked at Harry on the Ravenclaw bench, and his face was white and tired and quite still, and there was something in it.
+He looked back once from the doorway, over his shoulder. It was a very short look. It lasted perhaps a second. He looked at Harry on the Ravenclaw bench, and his face was white and tired and quite still, and there was something in it.
 
-Harry did not know what it was.
+Harry didn't know what it was.
 
-He had known what was in Draco Malfoy's face since a Sorting feast when they were eleven. He had known it every day for seven years. It had been the whole of what there was between them. *Harry always knows when Draco is afraid*, and *Draco knows he knows*. He had read it on a train and in a common room and across a Quidditch pitch and a bathroom full of water and a tower and a drawing room, and on a lawn in the dark four hours ago, and in a clearing, where it had been a knot he could not untie.
+He'd known what was in Draco Malfoy's face since a Sorting feast when they were eleven. He'd known it every day for seven years. It had been the whole of what there was between them. *Harry always knows when Draco is afraid*, and *Draco knows he knows*. He'd read it on a train and in a common room and across a Quidditch pitch, in a bathroom full of water and on a tower and in a drawing room, and on a lawn in the dark four hours ago, and in a clearing, where it had been a knot he couldn't untie.
 
 He looked at it now, in the doorway of the Great Hall, and it was a face.
 
-Then Draco turned round and went out with his mother, and Harry did not see him again for a very long time.
+Then Draco turned and went out with his mother, and Harry didn't see him again for a very long time.
 
-He was still holding Draco's wand. It was in his inside pocket, hawthorn, ten inches. He had not given it back. He had not thought to.
+He was still holding Draco's wand. It was in his inside pocket, hawthorn, ten inches. He hadn't given it back. He hadn't thought to.
 
 He thought about getting up and going after them.
 
-He did not.
+He didn't.
 
 * * *
 
 "Has anybody seen Theo?" said Harry.
 
-He asked everybody. He asked Kingsley, who was standing by the staff table with a list. He asked Professor McGonagall, who had a bandage on her arm and was talking to a Healer from St Mungo's. He asked Ginny, and Seamus Finnigan, and the three young Slytherins who had come up from the common room with their wands out and their faces white and were sitting together now at the Slytherin table, very close, like birds on a wire. He asked an Auror called Proudfoot who had been on the stairs to the dungeons at midnight.
+He asked everybody. He asked Kingsley, who was standing by the staff table with a list. He asked Professor McGonagall, who had a bandage on her arm and was talking to a Healer from St Mungo's. He asked Ginny, and Seamus Finnigan, and the three young Slytherins who'd come up from the common room with their wands out and their faces white and were sitting together now at the Slytherin table, very close, like birds on a wire. He asked an Auror called Proudfoot who'd been on the stairs to the dungeons at midnight.
 
 Nobody had seen him.
 
@@ -48571,9 +48571,9 @@ Kingsley looked down his list.
 
 "Well," said Kingsley, "his father's still looking for him."
 
-Harry went out on to the lawn and found Mr Nott.
+Harry went out onto the lawn and found Mr Nott.
 
-He was sitting on a low wall by the greenhouses, in black robes with no mask, an old man, older than Harry had expected, with a long grey face and a very good watch on his wrist. He had his hands between his knees. When Harry stopped in front of him, he looked up.
+He was sitting on a low wall by the greenhouses in black robes with no mask, an old man, older than Harry had expected, with a long grey face and a very good watch on his wrist. He had his hands between his knees. When Harry stopped in front of him, he looked up.
 
 "You're Potter," said Mr Nott.
 
@@ -48583,9 +48583,9 @@ He was sitting on a low wall by the greenhouses, in black robes with no mask, an
 
 "He is my friend," said Harry.
 
-Mr Nott looked at him for a long time. Harry looked back. And he did not know whether the old man was grieving, or afraid, or ashamed, or angry, or all of them, or none. He did not know whether he had found his son on the stairs last night and done something, or not found him at all. He did not know what was under the long grey face.
+Mr Nott looked at him for a long time. Harry looked back. And he didn't know whether the old man was grieving, or afraid, or ashamed, or angry, or all of them, or none. He didn't know whether he'd found his son on the stairs last night and done something, or never found him at all. He didn't know what lay beneath the long grey face.
 
-He would have known, yesterday. He would have known from across the lawn.
+He'd have known yesterday. He'd have known from across the lawn.
 
 "He was a spy," said Mr Nott. "They told me. On the hill. Carrow told everybody. My son was a spy for you for eighteen months, and I sat across a table from him at Christmas and did not know." He looked down at his hands. "I would like to know where he is."
 
@@ -48593,69 +48593,69 @@ He would have known, yesterday. He would have known from across the lawn.
 
 He went back up the lawn.
 
-He did not find Theo. Nobody did. Nobody had seen him leave.
+He didn't find Theo. Nobody did. Nobody had seen him leave.
 
 * * *
 
-Evelyn worked it out at a quarter to six, in the courtyard with the broken fountain, while she was looking at the water.
+Evelyn worked it out at a quarter to six, in the courtyard with the broken fountain, whilst she was looking at the water.
 
-She had gone out there to be on her own. She noted that she had gone out there to be on her own, which was not a thing she did, as a rule, because she had been on her own for most of her life and had never needed to go anywhere to manage it. But the Great Hall was very loud, and very full, and she had been sitting on a bench for forty minutes with a cup of tea she had not drunk, beside Potter, who did not know what she was feeling, and who kept looking at people's faces as though he had lost something in them.
+She'd gone out there to be on her own. She noted that she'd gone out there to be on her own, which wasn't something she did, as a rule, because she'd been on her own most of her life and had never needed to go anywhere to manage it. But the Great Hall was very loud and very full, and she'd been sitting on a bench for forty minutes with a cup of tea she hadn't drunk, beside Potter, who didn't know what she was feeling, and who kept looking at people's faces as though he'd lost something in them.
 
 So she went out to the courtyard.
 
-The fountain was broken. Somebody had blown the top off it in the night, and the water was still coming up out of the broken pipe in the middle of the basin, quite gently, and going over the edge, and across the flagstones in a long thin sheet towards the drain. There was a place by the fountain where the flagstones were very clean. Somebody had washed them. She did not look at it for long.
+The fountain was broken. Somebody had blown the top off it in the night, and the water was still welling quite gently out of the broken pipe in the middle of the basin and going over the edge and across the flagstones in a long thin sheet towards the drain. There was a place by the fountain where the flagstones were very clean. Somebody had washed them. She didn't look at it for long.
 
-She sat down on the edge of the basin.
+She sat on the edge of the basin.
 
 And she found, sitting there, that her mind was shut.
 
-She did not know when it had happened. She noted that. She had not noticed it close. She had gone into the Forest at midnight with it open an inch, the way it had been open for five weeks, a sash window painted into its frame, with the cold coming in under it. She had knelt on the ferns for four hours holding his hand and saying his name, and it had been open then, she was almost certain, because she could remember being afraid that something would come in through it while she was busy, and nothing had. And now it was shut. All the way down to the sill. She reached for it, the way her grandmother had taught her, at seven in the morning in the east wing at Selwyn Hall, and it was shut, and she had not shut it.
+She didn't know when it had happened. She noted that. She hadn't noticed it close. She'd gone into the Forest at midnight with it open an inch, as it had been for five weeks, a sash window painted into its frame with the cold coming in under it. She'd knelt on the ferns for four hours holding his hand and saying his name, and it had been open then, she was almost certain, because she remembered being afraid something would come in through it whilst she was busy, and nothing had. And now it was shut. All the way down to the sill. She reached for it, the way her grandmother had taught her at seven in the morning in the east wing at Selwyn Hall, and it was shut, and she hadn't shut it.
 
-It must have come down in the night. Some time between midnight and now. Some time while she was saying *Potter* on the ferns, with her eyes shut. Some time when she was not looking.
+It must have come down in the night. Some time between midnight and now. Some time whilst she was saying *Potter* on the ferns with her eyes shut. Some time when she wasn't looking.
 
 It made no difference.
 
-She noted that too. It made no difference now. He could not have read her if it had been wide open.
+She noted that too. It made no difference now. He couldn't have read her if it had been wide open.
 
-She sat on the edge of the fountain with her hands in her lap and looked at the water going across the flagstones, and she thought about the clearing.
+She sat on the edge of the fountain with her hands in her lap and watched the water running across the flagstones, and thought about the clearing.
 
 She thought about the curse.
 
-She had seen it. Nobody else had. Weasley and Granger and Longbottom and Malfoy had been facing outwards, into the trees, holding the line, and she had been on her knees beside Potter's body facing in, with her eyes open for once, because something had made her open them. She had seen the man by the fire raise the pale wand, slowly, with his face gone strange, as though he were looking at something a long way off that he did not like. She had seen him wrench it round, all at once, towards Potter. Towards her. She had seen the green light leave the end of it.
+She'd seen it. Nobody else had. Weasley and Granger and Longbottom and Malfoy had been facing outwards into the trees, holding the line, and she'd been on her knees beside Potter's body facing in, with her eyes open for once, because something had made her open them. She'd seen the man by the fire raise the pale wand slowly, his face gone strange, as though he were looking at something a long way off that he didn't like. She'd seen him wrench it round all at once towards Potter. Towards her. She'd seen the green light leave the end of it.
 
-She had not moved. There had not been time to move.
+She hadn't moved. There hadn't been time.
 
-And she had seen the light stop. In the air. About two feet from Potter's chest. It had stopped, the way a horse stops at a fence, and hung for a fraction of a second, very bright, and then it had gone back the way it had come.
+And she'd seen the light stop. In the air. About two feet from Potter's chest. It had stopped the way a horse stops at a fence, and hung for a fraction of a second, very bright, and then gone back the way it had come.
 
-She had been thinking about it ever since. In the Forest, and on the walk, and on the bench. She had been turning it over the way you turn over a figure that will not reconcile, looking for the place where somebody had carried a one.
+She'd been thinking about it ever since. In the Forest, and on the walk, and on the bench. She'd been turning it over the way you turn over a figure that won't reconcile, looking for the place where somebody had carried a one.
 
-Curses did not stop in the air. They did not change their minds. A wand did what it was told, by the person who held it, and a Killing Curse did not stop for anybody, and the man who had cast it had been the most powerful wizard alive.
+Curses didn't stop in the air. They didn't change their minds. A wand did what it was told by the person holding it, and a Killing Curse stopped for nobody, and the man who'd cast it had been the most powerful wizard alive.
 
-Unless the wand would not.
+Unless the wand wouldn't.
 
 She sat up.
 
-She knew a great deal about wands. She had read Gregorovitch's *Wandlore and the Theory of Allegiance* in the restricted section in her fourth year because it had been misshelved in Ancient Runes, and she had read it all the way through because it was there, and she had thought most of it was nonsense. Wands chose their wizards. Wands could be won. A wand taken from its owner by force might change its allegiance to the one who took it. Some wands more than others. Some wands, the old book said, very old ones, with a history of being taken, would follow nothing else.
+She knew a great deal about wands. She'd read Gregorovitch's *Wandlore and the Theory of Allegiance* in the Restricted Section in her fourth year because it had been misshelved in Ancient Runes, and she'd read it all the way through because it was there, and she'd thought most of it nonsense. Wands chose their wizards. Wands could be won. A wand taken from its owner by force might change its allegiance to the one who took it. Some wands more than others. Some wands, the old book said, very old ones with a history of being taken, would follow nothing else.
 
 The Elder Wand had a history of being taken. It was the whole of its history.
 
 She thought about the tower.
 
-She had not been on the tower. She had been in the east courtyard, holding Dead Calm, while a boy died in it. But Potter had been on the tower, under the Cloak, and he had told her everything, the next day, in order, with nothing left out, because that was what they did. He had told her that Malfoy had come up the stairs and said *Expelliarmus* and the Headmaster's wand had gone over the parapet end over end. He had told her that Snape had fetched it back up from the grass and held it out without a word. And he had told her that the Headmaster, in the last minute, on the lawn, had looked down at it for half a second as though it had answered him late.
+She hadn't been on the tower. She'd been in the east courtyard, holding Dead Calm, whilst a boy died in it. But Potter had been on the tower under the Cloak, and he'd told her everything the next day, in order, with nothing left out, because that was what they did. He'd told her Malfoy had come up the stairs and said *Expelliarmus* and the Headmaster's wand had gone over the parapet end over end. He'd told her Snape had fetched it back up from the grass and held it out without a word. And he'd told her that the Headmaster, in the last minute, on the lawn, had glanced down at it for half a second as though it had answered him late.
 
 She thought about a drawing room.
 
-She had been there. She had been standing at the end of a line with her hands tied, and she had watched Potter cross six feet of very deep carpet and take hold of Malfoy's wrist and twist it, quite hard, the way you would twist a wet cloth, and take the hawthorn wand out of his hand by force. Malfoy had not resisted. He had made a small sound. And Potter had kept the wand. It was in his pocket now. She had seen the end of it when he sat down on the bench.
+She'd been there. She'd been standing at the end of a line with her hands tied, and she'd watched Potter cross six feet of very deep carpet and take hold of Malfoy's wrist and twist it, quite hard, the way you'd wring a wet cloth, and take the hawthorn wand out of his hand by force. Malfoy hadn't resisted. He'd made a small sound. And Potter had kept the wand. It was in his pocket now. She'd seen the end of it when he sat on the bench.
 
-She sat on the edge of the broken fountain and laid it out, in order, as though she were checking a column of figures in a register.
+She sat on the edge of the broken fountain and laid it out in order, as though checking a column of figures in a register.
 
-The Headmaster had won the wand from her grandfather, in a field outside Wrocław, in 1945.
+The Headmaster had won the wand from her grandfather in a field outside Wrocław in 1945.
 
-Malfoy had taken it from the Headmaster, on the tower, without ever touching it.
+Malfoy had taken it from the Headmaster on the tower, without ever touching it.
 
-Potter had taken it from Malfoy, in the drawing room, without ever knowing it was there.
+Potter had taken it from Malfoy in the drawing room, without ever knowing it was there.
 
-And the man by the fire had taken it out of a dead man's hand on a lawn, which was not winning it at all. It was picking it up.
+And the man by the fire had taken it out of a dead man's hand on a lawn, which wasn't winning it at all. It was picking it up.
 
 She checked it twice.
 
@@ -48663,9 +48663,9 @@ Then she got up and went to find him.
 
 * * *
 
-He was standing in the Entrance Hall, by the foot of the staircase, looking at a curtain.
+He was standing in the Entrance Hall at the foot of the staircase, looking at a curtain.
 
-There was something under the curtain. She knew what it was. She had heard it fall. She had not looked at it then, and she did not look at it now.
+There was something under the curtain. She knew what it was. She'd heard it fall. She hadn't looked at it then, and she didn't look at it now.
 
 "Potter," said Evelyn.
 
@@ -48673,25 +48673,25 @@ He turned round.
 
 "I've found an error," she said. "I'd like to report it."
 
-He looked at her. He looked at her the way he had looked at everybody all morning, very carefully, as though he were trying to read small print in bad light. Then he seemed to give up, and simply looked.
+He looked at her. He looked at her the way he'd looked at everybody all morning, very carefully, as though trying to read small print in bad light. Then he seemed to give up, and simply looked.
 
 "Go on," he said.
 
 She told him.
 
-She told him exactly as she had laid it out on the edge of the fountain. Wrocław. The tower. The drawing room. The lawn, which was not winning but picking up. The curse that had stopped two feet from his chest and hung there, and gone back. She did not leave anything out and she did not add anything. She gave him the dates where she had them. She said *in my opinion* once, about the book, because the book had been misshelved and she had never been able to check its sources.
+She told him exactly as she'd laid it out on the edge of the fountain. Wrocław. The tower. The drawing room. The lawn, which wasn't winning but picking up. The curse that had stopped two feet from his chest and hung there and gone back. She left nothing out and added nothing. She gave him the dates where she had them. She said *in my opinion* once, about the book, because it had been misshelved and she'd never been able to check its sources.
 
-He listened to the whole of it without saying anything.
+He listened to all of it in silence.
 
-When she had finished, he put his hand into his inside pocket, slowly, and took out a wand.
+When she'd finished, he slowly put his hand into his inside pocket and took out a wand.
 
-It was not the hawthorn. It was long and pale, and there was a pattern down it like knots in wood, and halfway down there was a small dark mark like a burn.
+It wasn't the hawthorn. It was long and pale, with a pattern down it like knots in wood, and halfway down a small dark mark like a burn.
 
 "Longbottom picked it up," said Potter. "Off the ground, by a root. He gave it to me on the walk back. I didn't think about it." He looked at it in his hand. "I put it in my pocket."
 
 "That would be about right," said Evelyn.
 
-He looked at it for a long time. She watched him look at it. She noted that it was a perfectly ordinary-looking piece of wood, now, in the grey light, in his dirty hand, in the Entrance Hall, with the dust in the air and the curtain on the floor.
+He looked at it for a long time. She watched him look at it. She noted that it was a perfectly ordinary-looking piece of wood now, in the grey light, in his dirty hand, in the Entrance Hall, with the dust in the air and the curtain on the floor.
 
 "It knew me," he said. "In there. At the end. I felt it. I didn't know what it was." He turned it over. "It turned over. Like a cat, when you pick it up and it doesn't want to be held."
 
@@ -48703,13 +48703,13 @@ He looked at it for a long time. She watched him look at it. She noted that it w
 
 He looked at her.
 
-He put the wand back in his pocket, next to the hawthorn and the Cloak, quite carefully, the way you put away something you have not decided what to do with.
+He put the wand back in his pocket beside the hawthorn and the Cloak, quite carefully, the way you put away something you haven't decided what to do with.
 
 * * *
 
 The Selwyn business came up at six.
 
-It came up the way things came up that morning, in pieces, from people who had been told by somebody who had been told. A Patronus from London to Kingsley, which Kingsley read out in the Entrance Hall to the Aurors, without seeing her. The Muggle-born Registration Commission's offices on Level Ten had been found empty at three in the morning. The Chairman's desk had been cleared. There was ash in his grate. Corvin Selwyn had not been at the Ministry when it woke, and he was not at the Ministry now, and he was not at his house in London, and the Aurors who had gone to look for him had found the door open and the cat fed and nobody at home.
+It came up the way things came up that morning, in pieces, from people who'd been told by somebody who'd been told. A Patronus from London to Kingsley, which Kingsley read out in the Entrance Hall to the Aurors without seeing her. The Muggle-born Registration Commission's offices on Level Ten had been found empty at three in the morning. The Chairman's desk had been cleared. There was ash in his grate. Corvin Selwyn hadn't been at the Ministry when it woke, and he wasn't at the Ministry now, and he wasn't at his house in London, and the Aurors who'd gone to look for him had found the door open and the cat fed and nobody at home.
 
 "Gone abroad," said Kingsley. "We think. There's an international Portkey record from Croydon at ten past one. Name's wrong. Description fits."
 
@@ -48717,7 +48717,7 @@ It came up the way things came up that morning, in pieces, from people who had b
 
 "At the family place. In Shropshire. Selwyn Hall." Kingsley's mouth went thin. "Sent an owl at five asking for news of her son. Her elf's still sitting on our doorstep in London waiting for an answer."
 
-Nobody said anything for a moment.
+Nobody spoke for a moment.
 
 "Well," said one of the Aurors, a heavy man with a list. "What do we do with them?"
 
@@ -48725,15 +48725,15 @@ Nobody said anything for a moment.
 
 "The Selwyns." He looked at his list. "The brother's dead. The son's dead. The father's fled. The mother's in Shropshire with a bottle, from what I hear. And there's a daughter somewhere. Nobody seems to know where." He frowned. "Do we arrest the name? Do we put a watch on the house? Nobody's ever been able to say for certain whose side half that family were on, and now there's hardly any of them left to ask."
 
-Evelyn was standing four yards from him, by the foot of the staircase, beside the curtain. His eyes went over her the way they always had, everyone's eyes, all her life, and slid off, and went back to his list.
+Evelyn was standing four yards from him at the foot of the staircase, beside the curtain. His eyes went over her the way everyone's always had, all her life, and slid off, and went back to his list.
 
 "The daughter's here," said Potter.
 
 The Auror looked up.
 
-"She's standing next to me," said Potter. "She killed Severus Snape. She was at Nurmengard. She threw the Commission's wands across Courtroom Ten in front of her own father. She held the courtyard on the night Dumbledore died. She's been fighting your war for seven years while you were filling in that list." He paused. "She's the only Selwyn you'll ever need to know about."
+"She's standing next to me," said Potter. "She killed Severus Snape. She was at Nurmengard. She threw the Commission's wands across Courtroom Ten in front of her own father. She held the courtyard on the night Dumbledore died. She's been fighting your war for seven years whilst you were filling in that list." He paused. "She's the only Selwyn you'll ever need to know about."
 
-The Auror looked at her. He looked properly, this time. She could see him trying to fix her face. She could see it not quite working.
+The Auror looked at her. He looked properly this time. She could see him trying to fix her face. She could see it not quite working.
 
 "Oh," he said. "Right. Sorry, miss."
 
@@ -48743,43 +48743,43 @@ The Auror looked at her. He looked properly, this time. She could see him trying
 
 They went down to the lake at twenty past six, the two of them, without telling anybody.
 
-It was the first time they had been alone since a projection room in Leeds. They walked down the slope of the lawn on the castle side, away from the Forest, past the white tomb, which was scorched a little along one side. The grass was very wet. There were birds. A great many birds, all at once, in every tree, as though they had been told.
+It was the first time they'd been alone since a projection room in Leeds. They walked down the slope of the lawn on the castle side, away from the Forest, past the white tomb, which was a little scorched along one side. The grass was very wet. There were birds. A great many birds, all at once, in every tree, as though they'd been told.
 
-The sun came up while they were walking.
+The sun came up whilst they were walking.
 
-It came up over the mountains on the far side of the lake, very fast, the way it does in May, and the whole of the water went from grey to silver to a pale clear gold in about the time it took them to reach the shore. The mist went off the surface in long thin threads. The giant squid put one arm up out of the shallows, quite lazily, and then thought better of it and took it down again.
+It came up over the mountains on the far side of the lake, very fast, the way it does in May, and the whole of the water went from grey to silver to a pale clear gold in about the time it took them to reach the shore. The mist lifted off the surface in long thin threads. The giant squid put one arm up out of the shallows, quite lazily, then thought better of it and took it down again.
 
 It was a beautiful morning.
 
-Harry noted that. He did not know what to do with it.
+Harry noted that. He didn't know what to do with it.
 
-They stood on the shingle at the edge of the water. He had his hands in his pockets. His right hand was round three things: a folded square of silver cloth, and a hawthorn wand, and a long pale wand with a mark like a burn. He let go of all of them.
+They stood on the shingle at the edge of the water. He had his hands in his pockets. His right hand was closed round three things. A folded square of silver cloth, a hawthorn wand, and a long pale wand with a mark like a burn. He let go of all of them.
 
 Evelyn stood beside him with her hands in her cardigan pockets.
 
 He looked at her.
 
-He did not try to read her. He did not need to try. He knew what he would find, and it was exactly what he had found for seven years, every day, in every room, since a robe shop in Diagon Alley. Nothing. The plain quiet face that people forgot. The silence.
+He didn't try to read her. He didn't need to try. He knew what he'd find, and it was exactly what he'd found for seven years, every day, in every room, since a robe shop in Diagon Alley. Nothing. The plain quiet face people forgot. The silence.
 
 It made no difference now.
 
-He looked out across the lake. On the far shore there were people, very small, moving along the edge of the water from the direction of the village. He could see them. He did not know who they were, or what they felt, or whether they were glad or sorry or frightened or anything at all. They were people walking along a shore.
+He looked out across the lake. On the far shore there were people, very small, moving along the water's edge from the direction of the village. He could see them. He didn't know who they were, or what they felt, or whether they were glad or sorry or frightened or anything at all. They were people walking along a shore.
 
 Everyone was like her now.
 
-He did not say it. He stood on the shingle with the sun on his face and did not say anything for a long time. And neither did she. And it was, he found, after a while, not the worst silence he had ever stood in. He had stood in it for seven years beside her and called it rest.
+He didn't say it. He stood on the shingle with the sun on his face and said nothing for a long time. Nor did she. And it was, he found after a while, not the worst silence he'd ever stood in. He'd stood in it for seven years beside her and called it rest.
 
-He could not have said, then, what it was now.
+He couldn't have said, then, what it was now.
 
 "What time is it?" said Harry.
 
-He did not know why he asked. He had a watch. It was on his wrist. He had not looked at it since before the Forest. He did not look at it now.
+He didn't know why he asked. He had a watch. It was on his wrist. He hadn't looked at it since before the Forest. He didn't look at it now.
 
 Evelyn took her hand out of her pocket.
 
-She had the gold watch in it. She had had it in her hand, he realised, the whole way down the lawn. The small gold watch with the worn ivy leaves on the lid, which her grandmother had given her when she was eleven and which she had wound every morning of her life until a morning in December, at eleven minutes past seven, when it had stopped and not started again.
+She had the gold watch in it. She'd had it in her hand, he realised, the whole way down the lawn. The small gold watch with the worn ivy leaves on the lid, which her grandmother had given her when she was eleven and which she'd wound every morning of her life until a morning in December, at eleven minutes past seven, when it had stopped and never started again.
 
-She opened the lid. She did it without thinking, with her thumb, the way she had done it ten thousand times, thirty times a day, for seven years. She looked down at the face.
+She opened the lid. She did it without thinking, with her thumb, the way she'd done it ten thousand times, thirty times a day, for seven years. She looked down at the face.
 
 It said eleven minutes past seven. It had said eleven minutes past seven for a hundred and thirty-six days.
 
@@ -48791,13 +48791,13 @@ Then she closed the lid.
 
 He turned and looked at her.
 
-He had known her for seven years. He had heard her say the date of every goblin rebellion in the history of the world, and the number of stairs in the Astronomy Tower, and the exact time of every train she had ever caught, and how many feet a man had trodden on at a wedding. He had heard her correct teachers, and Ministers, and a dead man in a cell, and once a Dark Lord's lieutenant across a courtroom, on a point of procedure.
+He'd known her seven years. He'd heard her give the date of every goblin rebellion in the history of the world, and the number of stairs in the Astronomy Tower, and the exact time of every train she'd ever caught, and how many feet a man had trodden on at a wedding. He'd heard her correct teachers, and Ministers, and a dead man in a cell, and once, across a courtroom, a Dark Lord's lieutenant on a point of procedure.
 
-He had never once heard her not know something.
+He'd never once heard her not know something.
 
-She did not look at him. She stood on the shingle with the closed watch in her hand and the sun on the water, and looked out across the lake at the far shore, with her plain quiet face that told him nothing, that had always told him nothing.
+She didn't look at him. She stood on the shingle with the closed watch in her hand and the sun on the water, looking out across the lake at the far shore, with her plain quiet face that told him nothing, that had always told him nothing.
 
-"I don't know," she said again, quite steadily, as though she were noting it down.
+"I don't know," she said again, quite steadily, as though noting it down.
 
 <->
 
